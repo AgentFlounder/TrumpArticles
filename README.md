@@ -10,38 +10,49 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 # Jan 20
 
 Trump administration removes LGBTQ, HIV resources from government websites
+
 https://www.msn.com/en-us/news/politics/trump-administration-removes-lgbtq-hiv-resources-from-government-websites/ar-AA1xBZfz
 
 Trump administration directs federal health agencies to pause communications
+
 https://www.cnn.com/2025/01/21/health/hhs-cdc-fda-trump-pause-communication 
 
 Rubio instructs staff to freeze passport applications with ‘X’ sex markers
+
 https://www.theguardian.com/us-news/2025/jan/23/trump-rubio-x-gender-passport
 
 First Thing: Trump Pentagon nominee endorses extremist Christian doctrine
+
 Pete Hegseth expressed agreement for ‘sphere sovereignty’ which wants to make the government subordinate to Old Testament law.
+
 https://www.theguardian.com/us-news/2025/jan/24/first-thing-trump-pentagon-nominee-endorses-extremist-christian-doctrine
 
 Trump to sign executive order to fundamentally change or get rid of FEMA
+
 https://www.reuters.com/world/us/trump-will-sign-executive-order-fundamentally-change-or-get-rid-fema-2025-01-24/ 
 
 Trump ends Fauci’s security detail and says he’d feel no responsibility if harm befell him
+
 https://apnews.com/article/fauci-trump-security-detail-4b2e317dc9e7768c0571df30750e863a 
 
 ICE agents raid NJ seafood store, detaining U.S. military veteran
+
 https://pix11.com/news/local-news/ice-agents-raid-nj-seafood-store-detaining-u-s-military-veteran/ 
 
 ## Jan 25
 
 Trump’s new Justice Department leadership orders a freeze on civil rights cases
+
 https://apnews.com/article/civil-rights-division-justice-department-trump-2dcb45cca7c9c9cdaea78282d4279c35 
 
 US Department of Labor to cease and desist all investigative and enforcement activity under rescinded Executive Order 11246
+
 https://www.dol.gov/newsroom/releases/osec/osec20250124 
 
 ## Jan 26
 
 Trump Columbia Tarrifs
+
 https://apnews.com/article/colombia-immigration-deportation-flights-petro-trump-us-67870e41556c5d8791d22ec6767049fd 
 
 ## Jan 27
