@@ -13,13 +13,16 @@ Trump administration removes LGBTQ, HIV resources from government websites
 
 https://www.msn.com/en-us/news/politics/trump-administration-removes-lgbtq-hiv-resources-from-government-websites/ar-AA1xBZfz
 
+
 Trump administration directs federal health agencies to pause communications
 
 https://www.cnn.com/2025/01/21/health/hhs-cdc-fda-trump-pause-communication 
 
+
 Rubio instructs staff to freeze passport applications with ‘X’ sex markers
 
 https://www.theguardian.com/us-news/2025/jan/23/trump-rubio-x-gender-passport
+
 
 First Thing: Trump Pentagon nominee endorses extremist Christian doctrine
 
@@ -27,17 +30,21 @@ Pete Hegseth expressed agreement for ‘sphere sovereignty’ which wants to mak
 
 https://www.theguardian.com/us-news/2025/jan/24/first-thing-trump-pentagon-nominee-endorses-extremist-christian-doctrine
 
+
 Trump to sign executive order to fundamentally change or get rid of FEMA
 
 https://www.reuters.com/world/us/trump-will-sign-executive-order-fundamentally-change-or-get-rid-fema-2025-01-24/ 
+
 
 Trump ends Fauci’s security detail and says he’d feel no responsibility if harm befell him
 
 https://apnews.com/article/fauci-trump-security-detail-4b2e317dc9e7768c0571df30750e863a 
 
+
 ICE agents raid NJ seafood store, detaining U.S. military veteran
 
 https://pix11.com/news/local-news/ice-agents-raid-nj-seafood-store-detaining-u-s-military-veteran/ 
+
 
 ## Jan 25
 
@@ -45,9 +52,11 @@ Trump’s new Justice Department leadership orders a freeze on civil rights case
 
 https://apnews.com/article/civil-rights-division-justice-department-trump-2dcb45cca7c9c9cdaea78282d4279c35 
 
+
 US Department of Labor to cease and desist all investigative and enforcement activity under rescinded Executive Order 11246
 
 https://www.dol.gov/newsroom/releases/osec/osec20250124 
+
 
 ## Jan 26
 
@@ -55,179 +64,271 @@ Trump Columbia Tarrifs
 
 https://apnews.com/article/colombia-immigration-deportation-flights-petro-trump-us-67870e41556c5d8791d22ec6767049fd 
 
+
 ## Jan 27
 
 https://www.newsweek.com/trump-us-troops-europe-nato-2019728 
 
+
 https://www.newsweek.com/donald-trumps-100-day-ukraine-peace-plan-leaked-report-2021215 
 
+
 Trump White House orders freeze on federal grants, loans
+
 The memo says the temporary pause, effective starting at 5 p.m. on Tuesday, is intended to ensure agencies are complying with Trump’s
 executive orders to root out “Marxist equity, transgenderism, and green new deal social engineering policies” from programs within
 their purview.
+
 https://rollcall.com/2025/01/27/trump-white-house-orders-freeze-on-federal-grants-loans/
 
 'See how they like it': Trump suggests deporting US-born criminals to foreign prisons
+
 https://www.rawstory.com/trump-crime-2671007254/
+
 
 https://www.reddit.com/r/nursing/s/gu13Yrx0Uj 
 
+
 The Most Alarming Moments From RFK Jr.’s Confirmation Hearing
+
 https://www.rollingstone.com/politics/politics-news/rfk-jr-hhs-confirmation-hearing-most-alarming-moments-1235250481/ 
 
+
 Trump orders opening of migrant detention center at Guantánamo Bay
+
 https://www.theguardian.com/us-news/2025/jan/29/trump-guantanamo-detention-center
 
+
 Supreme Court Asked to Overturn Gay Marriage
+
 https://www.newsweek.com/supreme-court-asked-overturn-gay-marriage-2022073 
 
+
 Trump order targets pro-Palestinian activists to ‘combat antisemitism’
+
 https://www.theguardian.com/us-news/2025/jan/29/trump-executive-order-pro-palestinian-activists 
 
+
 Which countries will Trump’s foreign aid suspension hurt most?
+
 https://aje.io/0t59rj
 
 
 ## Jan 31
 
 The State Department is blocking new passports for trans Americans
+
 https://19thnews.org/2025/01/transgender-passports-state-department/ 
 
+
 'I feel like I’m stuck here': Trans, nonbinary Americans' passports remain in limbo
+
 https://www.usatoday.com/story/travel/news/2025/01/28/state-department-passport-gender-marker/77976486007/ 
 
+
 FAA Report on D.C. Plane Crash Is Out—and It’s an Indictment of Trump
+
 https://newrepublic.com/post/190964/faa-report-dc-plane-crash-staffing-indictment-trump 
 
+
 Exclusive: Musk aides lock government workers out of computer systems at US agency, sources say
+
 https://www.reuters.com/world/us/musk-aides-lock-government-workers-out-computer-systems-us-agency-sources-say-2025-01-31/ 
 
+
 Federal employees told to remove pronouns from email signatures by end of day
+
 https://abcnews.go.com/US/federal-employees-told-remove-pronouns-email-signatures-end/story?id=118310483
 
+
 Trump Admin Emails Air Traffic Controllers: Quit Your Jobs
+
 https://www.thedailybeast.com/trump-admin-emails-air-traffic-controllers-quit-your-jobs/ 
 
+
 CDC Data Are Disappearing
+
 https://www.theatlantic.com/health/archive/2025/01/cdc-dei-scientific-data/681531/ 
+
 
 https://techcrunch.com/2025/01/31/elon-musk-is-reportedly-taking-control-of-the-inner-workings-of-us-government-agencies/?guccounter=1 
 
+
 https://nypost.com/2025/01/31/us-news/faa-embroiled-in-lawsuit-alleging-it-turned-away-1000-applicants-based-on-race/?utm_source=reddit.com 
+
 
 https://www.nbcnews.com/politics/donald-trump/live-blog/trump-administration-tariff-canada-mexico-dei-plane-crash-live-updates-rcna190078/rcrd71576?canonicalCard=true 
 
+
 USDA orders removal of climate change mentions from public websites
+
 https://abcnews.go.com/US/usda-orders-removal-climate-change-mentions-public-websites/story?id=118312216 
+
 
 https://www.cnbc.com/2025/01/31/trump-media-djt-stock-shares-kash-patel.html 
 
+
 US health agencies scrubbing websites to remove 'gender ideology’
+
 https://www.reuters.com/world/us/us-health-agencies-scrubbing-websites-remove-gender-ideology-2025-01-31/ 
+
 
 https://www.bbc.com/news/articles/cp3jd798kpzo 
 
 Trans people in US federal prisons face brutal crackdown under Trump order
+
 https://www.theguardian.com/us-news/2025/jan/30/trans-people-federal-prisons
+
 
 https://www.thedailybeast.com/trump-orders-schools-to-ease-sexual-misconduct-rules/ 
 
+
 https://www.nbcnews.com/politics/national-security/trump-administration-forces-multiple-senior-fbi-officials-rcna190138 
 
+
 Trump Tells DOJ to Prosecute Teachers Who Unlawfully Support Trans Or Nonbinary Students
+
 https://www.motherjones.com/politics/2025/01/trump-tells-doj-to-prosecute-teachers-who-unlawfully-support-trans-or-nonbinary-students/ 
 
+
 US federal websites stay up after confusion over plan to remove diversity information
+
 https://www.reuters.com/world/us/trump-admin-take-down-most-government-websites-5-pm-cbs-reports-2025-01-31/ 
 
+
 Elon Musk’s Friends Have Infiltrated Another Government Agency
+
 https://archive.ph/8VcA7 | https://www.wired.com/story/elon-musk-lackeys-general-services-administration/ 
 
+
 FBI Agents Are Stunned by the Scale of the Expected Trump Purge
+
 https://www.theatlantic.com/politics/archive/2025/01/trump-fbi-revenge-firings/681538/
 
+
 Elon Musk Is Trying to Get Control of Key Payment System—at Any Cost
+
 https://newrepublic.com/post/190983/top-treasury-official-quit-elon-musk-fight-payment-system 
+
 
 ## Feb 1
 
 Hegseth Replaces Mainstream Media With MAGA Sites at Pentagon
+
 https://www.thedailybeast.com/four-media-outlets-stripped-of-office-space-in-pentagon/ 
 
+
 Pete Hegseth refuses to rule out military strikes on Mexico: 'All options will be on the table‘
+
 https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-military-cartels-mexico-b2690153.html 
 
+
 Trump’s Executive Order on Antisemitism Is a Threat to Every American
+
 https://slate.com/news-and-politics/2025/01/trump-executive-order-antisemitism-college-protests-hamas-constitution.html 
 
+
 Arrests, detentions underway in Florida as state cracks down on illegal immigrants. What we know
+
 https://www.usatoday.com/story/news/2025/01/31/illegal-immigrants-florida-arrests-ice-raids/78084285007/ 
 
 Federal agencies bar Black History Month and other 'special observances’
+
+(note: This seems to be in conflict with the black History month page on .gov)
+
 https://www.nbcnews.com/news/rcna190189 
 
-This seems to be in conflict with the black History month page on .gov
+
 ‘There will be many casualties’: Panama girds for war as Rubio opens talks
+
 https://www.politico.com/news/2025/02/01/panama-trump-confrontation-war-00201759 
+
 
 ## Feb 4
 
 https://www.theguardian.com/world/live/2025/feb/04/benjamin-netanyahu-donald-trump-israel-gaza-middle-east-ceasefire-latest-live-news
 
+
 El Salvador offers to hold ‘dangerous’ US citizens and criminal migrants from any country in their hellhole ‘mega-prison’
+
 https://nypost.com/2025/02/03/us-news/marco-rubio-says-el-salvador-offers-to-accept-deportees-from-us-of-any-nationality-including-violent-americans/ 
 
+
 ‘Generous’ El Salvador offer to house American criminals faces ‘legalities:’ Rubio
+
 https://thehill.com/homenews/administration/5126048-el-salvador-american-criminals-rubio/ 
 
+
 Trump says he’s exploring option to send jailed US criminals to other countries
+
 https://apnews.com/article/rubio-trump-deportations-usaid-f7a62a10b9a5d81582d05a33ff2281a4 
 
+
 “I’m just saying if we had a legal right to do it, I would do it in a heartbeat,” Trump told reporters in the Oval Office. “I don’t know if we do or not, we’re looking at that right now.”
+
 Secretary of State Marco Rubio reached an unusual agreement Monday with Salvadoran President Nayib Bukele forthe Central American country to accept U.S. deportees of any nationality, including American citizens and legal residents who are imprisoned for violent crimes.
+
 https://www.404media.co/things-are-going-to-get-intense-how-a-musk-ally-plans-to-push-ai-on-the-government/
+
  
 https://www.theguardian.com/world/live/2025/feb/04/benjamin-netanyahu-donald-trump-israel-gaza-middle-east-ceasefire-latest-live-news 
+
 
 ## Feb 5
 
 https://www.theguardian.com/us-news/2025/feb/05/trump-trans-athletes-ban
 
+
 https://federalnewsnetwork.com/management/2025/01/trump-administration-directs-opm-career-leaders-to-prepare-for-70-cut-to-staffing-programs/ 
+
 
 https://gizmodo.com/nasa-ordered-to-remove-anything-about-women-in-leadership-from-its-websites-report-2000559596 
 
+
 https://www.reuters.com/world/us/doge-aides-search-medicare-agency-payment-systems-fraud-wsj-reports-2025-02-05/ 
+
 
 https://www.nbcnews.com/news/amp/rcna190357
 
+
 https://slate.com/news-and-politics/2025/02/nlrb-gwynne-wilcox-sues-donald-trump-illegal.html 
+
 
 ## Feb 6
 
 https://www.theguardian.com/us-news/2025/feb/06/first-thing-blacklists-naming-woke-federal-workers-were-funded-by-project-2025-thinktank 
 
+
 https://www.cnn.com/politics/live-news/trump-gaza-news-02-06-25#cm6srdiyc00053b6mju3tx6qj 
 
+
 After prayer breakfast, Trump creates task force to root out ‘anti-Christian bias’
-https://apnews.com/article/trump-national-prayer-breakfast-30ff6f55a2e3c7b8643a15e7b158537d 
 
 Trump said Bondi would also work to “fully prosecute anti-Christian violence and vandalism in our society and to move heaven and earth to defend the rights of Christians and religious believers nationwide.”
+
+https://apnews.com/article/trump-national-prayer-breakfast-30ff6f55a2e3c7b8643a15e7b158537d 
+
 
 ## Feb 7
 
 https://thehill.com/homenews/education/5132685-department-of-education-musk-doge-trump-frost/ 
 
+
 https://www.theguardian.com/technology/2025/feb/08/judge-temporarily-blocks-musks-doge-team-from-accessing-treasury-records 
+
 
 ## Feb 10
 
 Did DOGE really ‘delete’ the tech division that helped create the IRS Direct File free tax filing service?
+
 https://www.cnn.com/2025/02/05/business/musk-irs-direct-file 
+
 
 https://www.cbc.ca/news/politics/trump-tariff-steel-aluminum-canada-1.7454845 
 
+
 https://www.military.com/daily-news/2025/02/10/vance-and-musk-question-authority-of-courts-trumps-agenda-faces-legal-pushback.html 
+
 
 ## Feb 11
 
@@ -267,16 +368,21 @@ Reading the riot act to U.S. allies, Hegseth said that Ukraine will not get all 
 
 https://apnews.com/article/nato-us-europeans-ukraine-security-russia-hegseth-d2cd05b5a7bc3d98acbf123179e6b391 
 
+
 ## Feb 14
 
 https://fortune.com/2025/02/14/elon-musk-doge-website-hacked-hackers/ 
 
+
 https://www.cbsnews.com/news/cdc-disease-detectives-doge-cuts-health-agencies/ 
+
 
 ## Feb 15
 
 Trump officials fired nuclear staff not realizing they oversee the country’s weapons stockpile, sources say
+
 https://www.cnn.com/2025/02/14/climate/nuclear-nnsa-firings-trump 
+
 
 However, one can easily find details on the National Reconnaissance Office (NRO) that are meant to be classified, including staff head counts, budget details and other sensitive personnel information, reported the Huffington Post. 
 
@@ -284,8 +390,8 @@ https://www.msn.com/en-us/technology/tech-companies/doge-website-reportedly-shar
 
 https://www.huffpost.com/entry/elon-musk-doge-posts-classified-data_n_67ae646de4b0513a8d767112 
 
-Trump’s DOGE fires thousands more employees; president orders end to school Covid-19 vaccine mandates: Live
 
+Trump’s DOGE fires thousands more employees; president orders end to school Covid-19 vaccine mandates: Live
 
 > The U.S. government has begun firing thousands of people at multiple agencies as Donald Trump and Elon Musk accelerated their purge of America’s federal bureaucracy.
 
@@ -294,6 +400,7 @@ Trump’s DOGE fires thousands more employees; president orders end to school Co
 > Termination emails have reportedly been sent to workers across the government at agencies such as the Department of Education, the Small Business Administration, the Consumer Financial Protection Bureau, and the General Services Administration.
 
 https://www.independent.co.uk/news/world/americas/us-politics/trump-executive-orders-tariffs-federal-musk-live-news-b2698501.html 
+
 
 RFK Jr. Is Already Taking Aim at Antidepressants
 
@@ -305,11 +412,14 @@ Kennedy said he planned to dedicate money generated from a sales tax on cannabis
 
 https://www.motherjones.com/politics/2025/02/kennedy-rfk-antidepressants-ssri-school-shootings/ 
 
+
 https://www.whitehouse.gov/presidential-actions/2025/02/establishing-the-presidents-make-america-healthy-again-commission/ 
+
 
 Europe will not be part of Ukraine-Russia peace talks, US envoy says
 
 https://www.theguardian.com/world/2025/feb/15/europe-will-not-take-part-in-us-russia-talks-ukraine-kellogg?CMP=Share_AndroidApp_Other 
+
 
 Top US Election Security Watchdog Forced to Stop Election Security Work
  
@@ -317,17 +427,26 @@ The move represents the first major example of the country’s cyber defense age
 
 https://www.engadget.com/science/trump-administration-adds-note-rejecting-gender-ideology-to-government-websites-220253562.html 
 
+
 CDC cuts expected to devastate Epidemic Intelligence Service, a ‘crown jewel’ of public health
+
 https://www.statnews.com/2025/02/14/trump-cdc-cuts-include-epidemic-intelligence-service-outbreak-investigators/ 
 
+
 “Those people . . . ” Donald said, trailing off. “The shape they’re in, all the expenses, maybe those kinds of people should just die.” 
+
 https://time.com/7002003/donald-trump-disabled-americans-all-in-the-family/ 
 
+
 DOGE, Education Department threaten states’ funding if they don’t cut DEI programs
+
 https://www.politico.com/news/2025/02/15/doge-education-department-dei-cuts-019574 
 
+
 Education Department launches investigation of Denver Public Schools for creating gender-neutral restroom
+
 https://www.politico.com/news/2025/01/28/denver-schools-gender-neutral-restroom-00201090 
+
 
 ## Feb 17
 
@@ -337,8 +456,11 @@ They're the front line of surveillance for the entire outbreak," Poulsen told Po
 
 https://www.upi.com/Top_News/US/2025/02/16/bird-flu-scientists-laid-off/6871739747941/ 
 
+
 Trump begins firings of FAA air traffic control staff just weeks after fatal DC plane crash
+
 https://apnews.com/article/doge-faa-air-traffic-firings-safety-67981aec33b6ee72cbad8dcee31f3437 
+
 
 https://newrepublic.com/post/191591/elon-musk-imprison-news-agency-60-minutes 
 
@@ -356,7 +478,10 @@ https://news.bgov.com/bloomberg-government-news/trumps-dhs-loosens-sexual-orient
 
 https://www.theguardian.com/us-news/2025/feb/20/guantanamo-migrant-jail-akima-revealed
 
-Trump administration trying to rehire USDA bird flu officials it fired https://www.bbc.com/news/articles/cjev24184vjo 
+Trump administration trying to rehire USDA bird flu officials it fired
+
+https://www.bbc.com/news/articles/cjev24184vjo 
+
 
 ## Feb 20
 
@@ -366,8 +491,11 @@ https://www.politico.com/news/2025/02/20/kennedy-prepares-shakeup-of-vaccine-adv
 
 https://forward.com/fast-forward/698485/steve-bannon-nazi-salute-elon-musk-cpac/ 
 
-"But any general that was involved -- general, admiral, whatever -- that was involved in any of the DEI woke s--- has got to go," he continued. "Either you're in for warfighting, and that's it. That's the only litmus test we care about.”
+"But any general that was involved -- general, admiral, whatever -- that was involved in any of the DEI woke s--- has got to go," he continued. 
+"Either you're in for warfighting, and that's it. That's the only litmus test we care about.”
+
 https://abc7ny.com/post/joint-chiefs-chairman-cq-brown-list-possibly-removed-hegseth/15937522/# 
+
 
 ## Feb 21
 
