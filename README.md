@@ -7,7 +7,7 @@ Track Trump Administration and GOP activities and related topics that are cause 
 ## Notes
 This isn't a complete list. Todo: Copy headlines in when time permits. Verify articles sorted by date of publication.
 
-# Jan 20
+## Jan 20
 
 Trump administration removes LGBTQ, HIV resources from government websites
 
@@ -500,37 +500,47 @@ https://abc7ny.com/post/joint-chiefs-chairman-cq-brown-list-possibly-removed-heg
 ## Feb 21
 
 Trump expected to take control of USPS, fire postal board, Washington Post reports
+
 https://www.reuters.com/world/us/trump-expected-take-control-usps-fire-postal-board-washington-post-reports-2025-02-21/ 
+
 
 https://www.theguardian.com/us-news/2025/feb/21/trump-mass-firings-federal-government-bill
 
 The Centers for Disease Control and Prevention is stopping a successful flu vaccination campaign that juxtaposed images of wild animals, such as a lion, with cute counterparts, like a kitten, as an analogy for how immunization can help tame the flu.
+
 https://www.npr.org/sections/shots-health-news/2025/02/19/nx-s1-5302906/cdc-flu-vaccine-campaign-terminated
+
 
 https://www.newsweek.com/kash-patel-enemies-list-pam-bondi-confronted-fbi-pick-2015930
 
 Trump Fires the Chairman of the Joint Chiefs
 
 President Donald Trump fired Air Force General CQ Brown, the Chairman of the Joint Chiefs of Staff, marking a promise to remove military leaders advocating diversity, equity, and inclusion.
+
 https://ground.news/article/trump-fires-the-chairman-of-the-joint-chiefs 
+
 
 https://kyivindependent.com/us-threatens-to-shut-off-starlink-if-ukraine-wont-sign-minerals-deal-sources-tell-reuters/ 
 
 https://electrek.co/2025/02/21/trump-to-shut-down-all-8000-ev-charging-ports-at-federal-govt-buildings/
 
-Trump Says Blue States Will ‘Totally Disappear Off The Map’ Next Year, Promises ‘Big, Big Surprise’ [sensationalize headline]
+Trump Says Blue States Will ‘Totally Disappear Off The Map’ Next Year, Promises ‘Big, Big Surprise’ \[sensationalized headline\]
 
-“I think the midterms are going to be a big, big surprise.” He reminded everyone that, traditionally, the president’s party doesn’t do well in midterms, but he believes Republicans are very popular right now. 
+“I think the midterms are going to be a big, big surprise.” He reminded everyone that, traditionally, the president’s 
+party doesn’t do well in midterms, but he believes Republicans are very popular right now. 
 
-He also pointed out that he has raised $608 million for the campaign and plans to spend it helping his allies. Trump warned Democratic states, saying, “The red states are going to do good, and the blue states, I don’t know, maybe they’ll totally disappear off that map.”
+He also pointed out that he has raised $608 million for the campaign and plans to spend it helping his allies. Trump warned
+Democratic states, saying, “The red states are going to do good, and the blue states, I don’t know, maybe they’ll totally disappear off that map.”
 
 https://thenewsglobe.net/?p=8837
+
 
 Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants
 
 The move would be a drastic escalation by the White House to militarize immigration enforcement.
 
 https://www.nytimes.com/2025/02/21/us/politics/migrants-military-sites.html 
+
 
 https://www.cnn.com/2025/02/20/politics/elon-musk-private-security-deputized-marshals-service/index.html 
 
@@ -544,10 +554,17 @@ https://www.vox.com/world/2018/9/12/17764132/trump-fbi-russia-new-york-times-cra
 
 https://www.msnbc.com/opinion/msnbc-opinion/trump-ukraine-russia-zelenskyy-betrayal-rcna193035 
  
-Hegseth says firing of top military lawyers was about making sure "they don't exist to be roadblocks to anything that happens.” https://www.reddit.com/r/law/s/Wws7CpXbDu 
+Hegseth says firing of top military lawyers was about making sure "they don't exist to be roadblocks to anything that happens.” 
+
+https://www.reddit.com/r/law/s/Wws7CpXbDu 
+
+
 Hegseth: Trump Will Install New Military Attorneys Who Won’t Be ‘Roadblocks to Anything’
+
 The defense secretary justified the firings of top judge advocate generals
+
 https://www.rollingstone.com/politics/politics-news/hegseth-military-lawyers-firings-roadblocks-1235276960/ 
+
 
 ## Feb 24
 
@@ -579,10 +596,13 @@ The blueprint — laid out in a 26-page document President Donald Trump’s advi
 
 https://www.politico.com/news/2025/02/25/documents-military-contractors-mass-deportations-022648 
 
+
 ## Feb 26
 
 Bombshell report reveals staggering amount of government funds paid to Elon Musk
+
 https://www.rawstory.com/elon-musk-government-contracts/ 
+
 
 ## Feb 27
 
@@ -591,34 +611,54 @@ https://www.govexec.com/workforce/2025/02/oversight-agency-finds-trumps-federal-
 https://www.reuters.com/world/us/transgender-us-service-members-will-be-separated-military-unless-exempted-2025-02-27/ 
 
 Support for doge declining, poll shows
+
 https://www.newsweek.com/doge-support-collapsing-poll-elon-musk-2037140 
 
+
 Trump officials race to rehire bird flu employees as egg prices skyrocket
+
 https://www.politico.com/news/2025/02/27/trump-fired-bird-flu-hires-00206334 
 
+
 Vladimir Putin’s Investment in Donald Trump Pays Off Bigly
+
 https://www.motherjones.com/politics/2025/02/vladimir-putin-donald-trump-elon-musk-ukraine-russiagate/ 
 
+
 EU pushes back hard against Trump tariff threats and his caustic comments that bloc is out to get US
+
 https://apnews.com/article/eu-us-trump-trade-war-tariffs-e799b44cbaf81b19c37a57d7fd55ee6d 
 
- Killing the Presidential Management Fellows program threatens the future of federal labor
+
+Killing the Presidential Management Fellows program threatens the future of federal labor
+
 COMMENTARY | A former fellow urges the Trump administration to reopen the door to this program that attracted talent and leaders to the federal workforce.
+
 https://www.govexec.com/transition/2025/02/killing-presidential-management-fellows-program-threatens-future-federal-labor/403259/ 
 
+
 Trump administration ends funding for UN program fighting HIV/Aids
+
 “UNAids has received reports from 55 countries experiencing disruptions in their HIV responses due to the US foreign aid pause,” the executive director of the agency, Winnie Byanyima, said on social media.
 
 “Any reduction could severely disrupt lifesaving prevention programs, risking new infections and reversing progress to end Aids.”
+
 https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding 
 
- White House official threatens to redraw Canadian border
- Peter Navarro is pushing negotiators to discuss reworking country’s boundaries, The Telegraph can reveal 
- https://www.telegraph.co.uk/us/politics/2025/02/27/white-house-canadian-border-trump-trudeau/ 
+
+White House official threatens to redraw Canadian border
+
+Peter Navarro is pushing negotiators to discuss reworking country’s boundaries, The Telegraph can reveal 
+
+https://www.telegraph.co.uk/us/politics/2025/02/27/white-house-canadian-border-trump-trudeau/ 
+
 
 Vance Gets Creepy About Immigrants, Again
+
 Last time he spun a yarn about Haitians eating people’s pets, this time he’s mocking Ukrainian Americans who oppose Putin’s war.
+
 https://www.thebulwark.com/p/vance-immigrants-ukrainian-american-russia-war 
+
 
 Federal workers react to Trump administration's new plan for restructuring, staff cuts: 'They'll have to fire me’
 
@@ -628,11 +668,13 @@ Federal workers who spoke with Business Insider after the memo was announced sai
 
 https://www.businessinsider.com/doge-office-new-staff-cuts-federal-workers-responde-2025-2 
 
+
 Republicans Told to 'Stop Cowering' From Voters as They Back Unpopular Medicaid Cuts
 
 "We expect every Republican who voted for the budget resolution to hold a town hall during recess on what parts of Medicaid and SNAP they want to cut," said the national director of the Working Families Party.
 
 https://www.commondreams.org/news/republican-town-halls-medicaid 
+
 
 ## Feb 26
 
@@ -641,6 +683,7 @@ Trump signals more firings of military leaders
 Senior officers involved in the U.S. pullout from Afghanistan are “going to be largely gone,” he said.
 
 https://www.politico.com/news/2025/02/26/trump-firings-military-leaders-00206240
+
 
 FDA Cancels Critical Flu Vaccine Meeting With No Explanation
 
@@ -652,14 +695,18 @@ The sudden cancellation of the meeting comes amid anxiety at federal health agen
 
 https://www.rollingstone.com/politics/politics-news/fda-cancels-flu-vaccine-meeting-rfk-jr-hhs-1235281638/ 
 
+
 Trump prepares to use controversial 1798 ‘Alien Enemies’ law to speed deportations
+
 https://www.cnn.com/2025/02/26/politics/trump-controversial-law-speed-deportations/index.html 
+
 
 Trump Takes Aim at Social Security in Dreadful New Layoffs Order
 
 Remember when Donald Trump promised he wouldn’t touch Social Security? That didn’t last long.
 
 https://newrepublic.com/post/192074/trump-social-security-layoffs 
+
 
 ## Feb 27
 
@@ -668,6 +715,7 @@ Republicans Are “Scared Sh*tless” of Trump’s Fans
 Republican lawmakers who step out of line quickly face the wrath of Donald Trump’s fans.
 
 https://newrepublic.com/post/191746/republicans-donald-trump-scared-fans
+
 
 https://www.theguardian.com/us-news/2025/feb/27/trump-noaa-cuts-climate 
 
@@ -678,6 +726,7 @@ Multiple vaccine projects have been paused by the Department of Health and Human
 Kennedy paused a multimillion-dollar project to create a new Covid-19 vaccine in pill form on Tuesday, and the Food and Drug Administration canceled an advisory committee meeting on updating next season’s flu vaccine, an advisory committee said Wednesday. 
 
 https://newrepublic.com/post/192059/rfk-jr-vaccines-flu-covid-hhs 
+
 
 ## Feb 28
 
