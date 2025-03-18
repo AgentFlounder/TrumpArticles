@@ -867,3 +867,6 @@ https://www.cbsnews.com/amp/newyork/news/columbia-university-doctoral-student-ra
 
 https://www.rollingstone.com/politics/politics-features/inside-team-trump-attack-judges-defiance-court-orders-1235298463/
 
+### Trump to declare “illicit” fentanyl “Weapon of Mass Destruction," per draft EO
+
+https://www.thehandbasket.co/p/trump-fentanyl-weapon-of-mass-destruction-executive-order-draft-scoop
