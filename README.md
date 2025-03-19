@@ -429,19 +429,17 @@ https://www.cbsnews.com/news/cdc-disease-detectives-doge-cuts-health-agencies/
 
 ## Feb 15
 
-Trump officials fired nuclear staff not realizing they oversee the country’s weapons stockpile, sources say
+### Trump officials fired nuclear staff not realizing they oversee the country’s weapons stockpile, sources say
 
 https://www.cnn.com/2025/02/14/climate/nuclear-nnsa-firings-trump 
 
-
-However, one can easily find details on the National Reconnaissance Office (NRO) that are meant to be classified, including staff head counts, budget details and other sensitive personnel information, reported the Huffington Post. 
+> However, one can easily find details on the National Reconnaissance Office (NRO) that are meant to be classified, including staff head counts, budget details and other sensitive personnel information, reported the Huffington Post. 
 
 https://www.msn.com/en-us/technology/tech-companies/doge-website-reportedly-shares-classified-intelligence-data-where-did-they-get-this-information/ar-AA1z56bI 
 
 https://www.huffpost.com/entry/elon-musk-doge-posts-classified-data_n_67ae646de4b0513a8d767112 
 
-
-Trump’s DOGE fires thousands more employees; president orders end to school Covid-19 vaccine mandates: Live
+### Trump’s DOGE fires thousands more employees; president orders end to school Covid-19 vaccine mandates: Live
 
 > The U.S. government has begun firing thousands of people at multiple agencies as Donald Trump and Elon Musk accelerated their purge of America’s federal bureaucracy.
 
@@ -451,14 +449,22 @@ Trump’s DOGE fires thousands more employees; president orders end to school Co
 
 https://www.independent.co.uk/news/world/americas/us-politics/trump-executive-orders-tariffs-federal-musk-live-news-b2698501.html 
 
+### RFK Jr. Is Already Taking Aim at Antidepressants
 
-RFK Jr. Is Already Taking Aim at Antidepressants
-
-The new HHS secretary has made baseless claims that the drugs are addictive and cause violent behavior.
+> The new HHS secretary has made baseless claims that the drugs are addictive and cause violent behavior.
  
-Kennedy has repeatedly railed against what he sees as rampant overprescription of selective serotonin reuptake inhibitors, commonly known as SSRIs, which treat depression and anxiety and include medications like Prozac and Zoloft. As with his previous assertions about vaccines, many of his statements about these drugs are not backed by science. In a 2023 livestream on X with Elon Musk, he claimed that “tremendous circumstantial evidence” suggested that people taking antidepressants were more likely to commit school shootings. (Actually, most school shooters were not taking those drugs, evidence shows.) Kennedy has also called people who take SSRIs addicts—and then tried to claim he didn’t during his confirmation hearings.
+> Kennedy has repeatedly railed against what he sees as rampant overprescription of selective serotonin reuptake inhibitors, commonly known
+> as SSRIs, which treat depression and anxiety and include medications like Prozac and Zoloft. As with his previous assertions about vaccines,
+> many of his statements about these drugs are not backed by science. In a 2023 livestream on X with Elon Musk, he claimed that “tremendous
+> circumstantial evidence” suggested that people taking antidepressants were more likely to commit school shootings. (Actually, most school
+> shooters were not taking those drugs, evidence shows.) Kennedy has also called people who take SSRIs addicts—and then tried to claim he
+> didn’t during his confirmation hearings.
 
-Kennedy said he planned to dedicate money generated from a sales tax on cannabis products to “creating wellness farms—drug rehabilitation farms, in rural areas all over this country.” He added, “I’m going to create these wellness farms where they can go to get off of illegal drugs, off of opiates, but also illegal drugs, other psychiatric drugs, if they want to, to get off of SSRIs, to get off of benzos, to get off of Adderall, and to spend time as much time as they need—three or four years if they need it—to learn to get reparented, to reconnect with communities.” 
+> Kennedy said he planned to dedicate money generated from a sales tax on cannabis products to “creating wellness farms—drug rehabilitation
+> farms, in rural areas all over this country.” He added, “I’m going to create these wellness farms where they can go to get off of illegal
+> drugs, off of opiates, but also illegal drugs, other psychiatric drugs, if they want to, to get off of SSRIs, to get off of benzos, to get
+> off of Adderall, and to spend time as much time as they need—three or four years if they need it—to learn to get reparented, to reconnect
+> with communities.” 
 
 https://www.motherjones.com/politics/2025/02/kennedy-rfk-antidepressants-ssri-school-shootings/ 
 
@@ -466,51 +472,45 @@ https://www.motherjones.com/politics/2025/02/kennedy-rfk-antidepressants-ssri-sc
 https://www.whitehouse.gov/presidential-actions/2025/02/establishing-the-presidents-make-america-healthy-again-commission/ 
 
 
-Europe will not be part of Ukraine-Russia peace talks, US envoy says
+### Europe will not be part of Ukraine-Russia peace talks, US envoy says
 
 https://www.theguardian.com/world/2025/feb/15/europe-will-not-take-part-in-us-russia-talks-ukraine-kellogg?CMP=Share_AndroidApp_Other 
 
-
-Top US Election Security Watchdog Forced to Stop Election Security Work
+### Top US Election Security Watchdog Forced to Stop Election Security Work
  
-The move represents the first major example of the country’s cyber defense agency accommodating President Donald Trump’s false claims of election fraud and online censorship. https://archive.ph/iol6w 
+> The move represents the first major example of the country’s cyber defense agency accommodating President Donald Trump’s false claims of election fraud and online censorship. https://archive.ph/iol6w 
 
 https://www.engadget.com/science/trump-administration-adds-note-rejecting-gender-ideology-to-government-websites-220253562.html 
 
-
-CDC cuts expected to devastate Epidemic Intelligence Service, a ‘crown jewel’ of public health
+### CDC cuts expected to devastate Epidemic Intelligence Service, a ‘crown jewel’ of public health
 
 https://www.statnews.com/2025/02/14/trump-cdc-cuts-include-epidemic-intelligence-service-outbreak-investigators/ 
 
-
-“Those people . . . ” Donald said, trailing off. “The shape they’re in, all the expenses, maybe those kinds of people should just die.” 
+> “Those people . . . ” Donald said, trailing off. “The shape they’re in, all the expenses, maybe those kinds of people should just die.” 
 
 https://time.com/7002003/donald-trump-disabled-americans-all-in-the-family/ 
 
-
-DOGE, Education Department threaten states’ funding if they don’t cut DEI programs
+### DOGE, Education Department threaten states’ funding if they don’t cut DEI programs
 
 https://www.politico.com/news/2025/02/15/doge-education-department-dei-cuts-019574 
 
-
-Education Department launches investigation of Denver Public Schools for creating gender-neutral restroom
+### Education Department launches investigation of Denver Public Schools for creating gender-neutral restroom
 
 https://www.politico.com/news/2025/01/28/denver-schools-gender-neutral-restroom-00201090 
 
 
 ## Feb 17
 
-USDA scientists overseeing bird flu response are laid off
+### USDA scientists overseeing bird flu response are laid off
 
-They're the front line of surveillance for the entire outbreak," Poulsen told Politico. "They're already underwater and they are constantly short-staffed, so if you take all the probationary staff out, you'll take out the capacity to do the work.”
+> They're the front line of surveillance for the entire outbreak," Poulsen told Politico. "They're already underwater and they are
+>  constantly short-staffed, so if you take all the probationary staff out, you'll take out the capacity to do the work.”
 
 https://www.upi.com/Top_News/US/2025/02/16/bird-flu-scientists-laid-off/6871739747941/ 
 
-
-Trump begins firings of FAA air traffic control staff just weeks after fatal DC plane crash
+### Trump begins firings of FAA air traffic control staff just weeks after fatal DC plane crash
 
 https://apnews.com/article/doge-faa-air-traffic-firings-safety-67981aec33b6ee72cbad8dcee31f3437 
-
 
 https://newrepublic.com/post/191591/elon-musk-imprison-news-agency-60-minutes 
 
@@ -541,56 +541,51 @@ https://www.politico.com/news/2025/02/20/kennedy-prepares-shakeup-of-vaccine-adv
 
 https://forward.com/fast-forward/698485/steve-bannon-nazi-salute-elon-musk-cpac/ 
 
-"But any general that was involved -- general, admiral, whatever -- that was involved in any of the DEI woke s--- has got to go," he continued. 
-"Either you're in for warfighting, and that's it. That's the only litmus test we care about.”
+> "But any general that was involved -- general, admiral, whatever -- that was involved in any of the DEI woke s--- has got to go," he continued. 
+> "Either you're in for warfighting, and that's it. That's the only litmus test we care about.”
 
 https://abc7ny.com/post/joint-chiefs-chairman-cq-brown-list-possibly-removed-hegseth/15937522/# 
 
 
 ## Feb 21
 
-Trump expected to take control of USPS, fire postal board, Washington Post reports
+### Trump expected to take control of USPS, fire postal board, Washington Post reports
 
 https://www.reuters.com/world/us/trump-expected-take-control-usps-fire-postal-board-washington-post-reports-2025-02-21/ 
 
-
 https://www.theguardian.com/us-news/2025/feb/21/trump-mass-firings-federal-government-bill
 
-The Centers for Disease Control and Prevention is stopping a successful flu vaccination campaign that juxtaposed images of wild animals, such as a lion, with cute counterparts, like a kitten, as an analogy for how immunization can help tame the flu.
+> The Centers for Disease Control and Prevention is stopping a successful flu vaccination campaign that juxtaposed images of wild animals, such as a lion, with cute counterparts, like a kitten, as an analogy for how immunization can help tame the flu.
 
 https://www.npr.org/sections/shots-health-news/2025/02/19/nx-s1-5302906/cdc-flu-vaccine-campaign-terminated
 
-
 https://www.newsweek.com/kash-patel-enemies-list-pam-bondi-confronted-fbi-pick-2015930
 
-Trump Fires the Chairman of the Joint Chiefs
+### Trump Fires the Chairman of the Joint Chiefs
 
-President Donald Trump fired Air Force General CQ Brown, the Chairman of the Joint Chiefs of Staff, marking a promise to remove military leaders advocating diversity, equity, and inclusion.
+> President Donald Trump fired Air Force General CQ Brown, the Chairman of the Joint Chiefs of Staff, marking a promise to remove military leaders advocating diversity, equity, and inclusion.
 
 https://ground.news/article/trump-fires-the-chairman-of-the-joint-chiefs 
-
 
 https://kyivindependent.com/us-threatens-to-shut-off-starlink-if-ukraine-wont-sign-minerals-deal-sources-tell-reuters/ 
 
 https://electrek.co/2025/02/21/trump-to-shut-down-all-8000-ev-charging-ports-at-federal-govt-buildings/
 
-Trump Says Blue States Will ‘Totally Disappear Off The Map’ Next Year, Promises ‘Big, Big Surprise’ \[sensationalized headline\]
+## Trump Says Blue States Will ‘Totally Disappear Off The Map’ Next Year, Promises ‘Big, Big Surprise’ \[sensationalized headline\]
 
-“I think the midterms are going to be a big, big surprise.” He reminded everyone that, traditionally, the president’s 
+> “I think the midterms are going to be a big, big surprise.” He reminded everyone that, traditionally, the president’s 
 party doesn’t do well in midterms, but he believes Republicans are very popular right now. 
 
-He also pointed out that he has raised $608 million for the campaign and plans to spend it helping his allies. Trump warned
+> He also pointed out that he has raised $608 million for the campaign and plans to spend it helping his allies. Trump warned
 Democratic states, saying, “The red states are going to do good, and the blue states, I don’t know, maybe they’ll totally disappear off that map.”
 
 https://thenewsglobe.net/?p=8837
 
+### Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants
 
-Trump Plans to Use Military Sites Across the Country to Detain Undocumented Immigrants
-
-The move would be a drastic escalation by the White House to militarize immigration enforcement.
+> The move would be a drastic escalation by the White House to militarize immigration enforcement.
 
 https://www.nytimes.com/2025/02/21/us/politics/migrants-military-sites.html 
-
 
 https://www.cnn.com/2025/02/20/politics/elon-musk-private-security-deputized-marshals-service/index.html 
 
@@ -604,17 +599,15 @@ https://www.vox.com/world/2018/9/12/17764132/trump-fbi-russia-new-york-times-cra
 
 https://www.msnbc.com/opinion/msnbc-opinion/trump-ukraine-russia-zelenskyy-betrayal-rcna193035 
  
-Hegseth says firing of top military lawyers was about making sure "they don't exist to be roadblocks to anything that happens.” 
+### Hegseth says firing of top military lawyers was about making sure "they don't exist to be roadblocks to anything that happens.” 
 
 https://www.reddit.com/r/law/s/Wws7CpXbDu 
 
+### Hegseth: Trump Will Install New Military Attorneys Who Won’t Be ‘Roadblocks to Anything’
 
-Hegseth: Trump Will Install New Military Attorneys Who Won’t Be ‘Roadblocks to Anything’
-
-The defense secretary justified the firings of top judge advocate generals
+> The defense secretary justified the firings of top judge advocate generals
 
 https://www.rollingstone.com/politics/politics-news/hegseth-military-lawyers-firings-roadblocks-1235276960/ 
-
 
 ## Feb 24
 
@@ -636,23 +629,25 @@ https://www.the-express.com/news/politics/164710/Elon-Musk-s-DOGE-thrown-into-ch
 
 ## Feb 25
 
-Trump allies circulate mass deportation plan calling for ‘processing camps’ and a private citizen ‘army’
+### Trump allies circulate mass deportation plan calling for ‘processing camps’ and a private citizen ‘army’
 
-The group, led by Blackwater veteran Erik Prince, has close Trump ties.
+> The group, led by Blackwater veteran Erik Prince, has close Trump ties.
 
-A group of prominent military contractors, including former Blackwater CEO Erik Prince, has pitched the Trump White House on a proposal to carry out mass deportations through a network of “processing camps” on military bases, a private fleet of 100 planes, and a “small army” of private citizens empowered to make arrests.
+> A group of prominent military contractors, including former Blackwater CEO Erik Prince, has pitched the Trump White House on a
+> proposal to carry out mass deportations through a network of “processing camps” on military bases, a private fleet of 100 planes,
+> and a “small army” of private citizens empowered to make arrests.
 
-The blueprint — laid out in a 26-page document President Donald Trump’s advisers received before the inauguration — carries an estimated price tag of $25 billion and recommends a range of aggressive tactics to rapidly deport 12 million people before the 2026 midterms, including some that would likely face legal and operational challenges, according to a copy obtained by POLITICO.
+> The blueprint — laid out in a 26-page document President Donald Trump’s advisers received before the inauguration — carries an estimated 
+> price tag of $25 billion and recommends a range of aggressive tactics to rapidly deport 12 million people before the 2026 midterms, 
+> including some that would likely face legal and operational challenges, according to a copy obtained by POLITICO.
 
 https://www.politico.com/news/2025/02/25/documents-military-contractors-mass-deportations-022648 
 
-
 ## Feb 26
 
-Bombshell report reveals staggering amount of government funds paid to Elon Musk
+### Bombshell report reveals staggering amount of government funds paid to Elon Musk
 
 https://www.rawstory.com/elon-musk-government-contracts/ 
-
 
 ## Feb 27
 
@@ -660,52 +655,45 @@ https://www.govexec.com/workforce/2025/02/oversight-agency-finds-trumps-federal-
 
 https://www.reuters.com/world/us/transgender-us-service-members-will-be-separated-military-unless-exempted-2025-02-27/ 
 
-Support for doge declining, poll shows
+### Support for doge declining, poll shows
 
 https://www.newsweek.com/doge-support-collapsing-poll-elon-musk-2037140 
 
-
-Trump officials race to rehire bird flu employees as egg prices skyrocket
+### Trump officials race to rehire bird flu employees as egg prices skyrocket
 
 https://www.politico.com/news/2025/02/27/trump-fired-bird-flu-hires-00206334 
 
-
-Vladimir Putin’s Investment in Donald Trump Pays Off Bigly
+### Vladimir Putin’s Investment in Donald Trump Pays Off Bigly
 
 https://www.motherjones.com/politics/2025/02/vladimir-putin-donald-trump-elon-musk-ukraine-russiagate/ 
 
-
-EU pushes back hard against Trump tariff threats and his caustic comments that bloc is out to get US
+### EU pushes back hard against Trump tariff threats and his caustic comments that bloc is out to get US
 
 https://apnews.com/article/eu-us-trump-trade-war-tariffs-e799b44cbaf81b19c37a57d7fd55ee6d 
 
+### Killing the Presidential Management Fellows program threatens the future of federal labor
 
-Killing the Presidential Management Fellows program threatens the future of federal labor
-
-COMMENTARY | A former fellow urges the Trump administration to reopen the door to this program that attracted talent and leaders to the federal workforce.
+> A former fellow urges the Trump administration to reopen the door to this program that attracted talent and leaders to the federal workforce.
 
 https://www.govexec.com/transition/2025/02/killing-presidential-management-fellows-program-threatens-future-federal-labor/403259/ 
 
+### Trump administration ends funding for UN program fighting HIV/Aids
 
-Trump administration ends funding for UN program fighting HIV/Aids
+> “UNAids has received reports from 55 countries experiencing disruptions in their HIV responses due to the US foreign aid pause,” the executive director of the agency, Winnie Byanyima, said on social media.
 
-“UNAids has received reports from 55 countries experiencing disruptions in their HIV responses due to the US foreign aid pause,” the executive director of the agency, Winnie Byanyima, said on social media.
-
-“Any reduction could severely disrupt lifesaving prevention programs, risking new infections and reversing progress to end Aids.”
+> “Any reduction could severely disrupt lifesaving prevention programs, risking new infections and reversing progress to end Aids.”
 
 https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding 
 
+### White House official threatens to redraw Canadian border
 
-White House official threatens to redraw Canadian border
-
-Peter Navarro is pushing negotiators to discuss reworking country’s boundaries, The Telegraph can reveal 
+> Peter Navarro is pushing negotiators to discuss reworking country’s boundaries, The Telegraph can reveal 
 
 https://www.telegraph.co.uk/us/politics/2025/02/27/white-house-canadian-border-trump-trudeau/ 
 
+### Vance Gets Creepy About Immigrants, Again
 
-Vance Gets Creepy About Immigrants, Again
-
-Last time he spun a yarn about Haitians eating people’s pets, this time he’s mocking Ukrainian Americans who oppose Putin’s war.
+> Last time he spun a yarn about Haitians eating people’s pets, this time he’s mocking Ukrainian Americans who oppose Putin’s war.
 
 https://www.thebulwark.com/p/vance-immigrants-ukrainian-american-russia-war 
 
