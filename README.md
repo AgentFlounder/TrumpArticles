@@ -947,3 +947,9 @@ https://economictimes.com/news/international/us/think-your-atm-withdrawals-are-p
 > This key forgotten payments intermediary, the arteries of our government’s fiscal system, was in danger of being used to impound congressionally appropriated funds without even having to take over government agencies. Worse, Musks’ lackeys could accidentally damage or destroy Bureau of Fiscal Service systems in the attempt to control them. 
 
 https://www.rollingstone.com/politics/politics-features/trump-musk-doge-treasury-take-money-bank-account-1235295232/
+
+### Trump administration removes ban on 'segregated facilities' in federal contracts
+
+> The administration of U.S. President Donald Trump has removed an explicit ban on "segregated facilities" like waiting rooms, restaurants and drinking fountains for federal contractors, a memo issued by the U.S. General Services Administration showed.
+
+https://www.reuters.com/world/us/trump-administration-removes-ban-segregated-facilities-federal-contracts-2025-03-19/
