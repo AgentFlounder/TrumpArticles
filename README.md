@@ -870,3 +870,10 @@ https://www.rollingstone.com/politics/politics-features/inside-team-trump-attack
 ### Trump to declare “illicit” fentanyl “Weapon of Mass Destruction," per draft EO
 
 https://www.thehandbasket.co/p/trump-fentanyl-weapon-of-mass-destruction-executive-order-draft-scoop
+
+## Mar 19
+
+### The U.S. Army has erased Medgar Evers from the Arlington National Cemetery website
+
+> World War II veteran Medgar Evers, whom President Trump called “a great American hero,” has been erased from the Arlington National Cemetery website, which featured a section honoring Black Americans who fought in the nation’s wars.
+https://www.nola.com/news/medgar-evers-army-veteran/article_86924496-040c-11f0-99e1-13083a88e4fd.html
