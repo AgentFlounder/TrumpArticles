@@ -939,3 +939,11 @@ https://www.reuters.com/world/us/trump-signs-order-shift-disaster-preparations-f
 > The seven California and Texas counties are San Diego and Imperial Counties in California, and Cameron, El Paso, Hidalgo, Maverick, and Webb Counties in Texas are now subject to this financial monitoring, reported Reason.
 
 https://economictimes.com/news/international/us/think-your-atm-withdrawals-are-private-taking-out-200-could-now-put-you-on-the-federal-financial-surveillance-radar-in-these-american-counties/amp_articleshow/119167566.cms
+
+### Can Trump Arbitrarily Take Money From Anyone’s Bank Account?
+
+>The federal government’s debiting $80.5 million from New York City’s bank account suggests yes
+
+> This key forgotten payments intermediary, the arteries of our government’s fiscal system, was in danger of being used to impound congressionally appropriated funds without even having to take over government agencies. Worse, Musks’ lackeys could accidentally damage or destroy Bureau of Fiscal Service systems in the attempt to control them. 
+
+https://www.rollingstone.com/politics/politics-features/trump-musk-doge-treasury-take-money-bank-account-1235295232/
