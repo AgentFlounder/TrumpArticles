@@ -925,3 +925,7 @@ https://www.thehandbasket.co/p/trump-fentanyl-weapon-of-mass-destruction-executi
 
 > World War II veteran Medgar Evers, whom President Trump called “a great American hero,” has been erased from the Arlington National Cemetery website, which featured a section honoring Black Americans who fought in the nation’s wars.
 https://www.nola.com/news/medgar-evers-army-veteran/article_86924496-040c-11f0-99e1-13083a88e4fd.html
+
+### Trump signs order to shift disaster preparations from FEMA to states, local governments
+
+https://www.reuters.com/world/us/trump-signs-order-shift-disaster-preparations-fema-states-local-governments-2025-03-19/
