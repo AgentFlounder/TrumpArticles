@@ -252,66 +252,81 @@ https://www.politico.com/news/2025/02/01/panama-trump-confrontation-war-00201759
 
 https://www.theguardian.com/world/live/2025/feb/04/benjamin-netanyahu-donald-trump-israel-gaza-middle-east-ceasefire-latest-live-news
 
-
-El Salvador offers to hold ‘dangerous’ US citizens and criminal migrants from any country in their hellhole ‘mega-prison’
+### El Salvador offers to hold ‘dangerous’ US citizens and criminal migrants from any country in their hellhole ‘mega-prison’
 
 https://nypost.com/2025/02/03/us-news/marco-rubio-says-el-salvador-offers-to-accept-deportees-from-us-of-any-nationality-including-violent-americans/ 
 
-
-‘Generous’ El Salvador offer to house American criminals faces ‘legalities:’ Rubio
+### ‘Generous’ El Salvador offer to house American criminals faces ‘legalities:’ Rubio
 
 https://thehill.com/homenews/administration/5126048-el-salvador-american-criminals-rubio/ 
 
+### Trump says he’s exploring option to send jailed US criminals to other countries
 
-Trump says he’s exploring option to send jailed US criminals to other countries
+> “I’m just saying if we had a legal right to do it, I would do it in a heartbeat,” Trump told reporters in the Oval Office. “I don’t know if we do or not, we’re looking at that right now.”
+
+> Secretary of State Marco Rubio reached an unusual agreement Monday with Salvadoran President Nayib Bukele forthe Central American country to accept U.S. deportees of any nationality, including American citizens and legal residents who are imprisoned for violent crimes.
+
+### Trump says he’s exploring option to send jailed US criminals to other countries
 
 https://apnews.com/article/rubio-trump-deportations-usaid-f7a62a10b9a5d81582d05a33ff2281a4 
 
-
-“I’m just saying if we had a legal right to do it, I would do it in a heartbeat,” Trump told reporters in the Oval Office. “I don’t know if we do or not, we’re looking at that right now.”
-
-Secretary of State Marco Rubio reached an unusual agreement Monday with Salvadoran President Nayib Bukele forthe Central American country to accept U.S. deportees of any nationality, including American citizens and legal residents who are imprisoned for violent crimes.
-
-https://www.404media.co/things-are-going-to-get-intense-how-a-musk-ally-plans-to-push-ai-on-the-government/
-
- 
-https://www.theguardian.com/world/live/2025/feb/04/benjamin-netanyahu-donald-trump-israel-gaza-middle-east-ceasefire-latest-live-news 
-
-
 ## Feb 5
+
+### Trump signs executive order banning trans athletes from women’s sports
 
 https://www.theguardian.com/us-news/2025/feb/05/trump-trans-athletes-ban
 
+### Trump administration directs 70% cut to internal OPM staffing, programs
 
 https://federalnewsnetwork.com/management/2025/01/trump-administration-directs-opm-career-leaders-to-prepare-for-70-cut-to-staffing-programs/ 
 
+### NASA Ordered to Remove Anything About ‘Women in Leadership’ From Its Websites: Report 
 
 https://gizmodo.com/nasa-ordered-to-remove-anything-about-women-in-leadership-from-its-websites-report-2000559596 
 
+### Musk's DOGE granted access to US Medicare and Medicaid systems
 
 https://www.reuters.com/world/us/doge-aides-search-medicare-agency-payment-systems-fraud-wsj-reports-2025-02-05/ 
 
+### USAID security leaders removed after refusing Elon Musk's DOGE employees access to secure systems
 
-https://www.nbcnews.com/news/amp/rcna190357
+https://www.nbcnews.com/news/rcna190357
 
+### I Was a Member of the the NLRB. What Trump’s Doing to It Now Is Very Illegal.
+
+> ... On Wednesday, former National Labor Relations Board member Gwynne Wilcox sued Trump over his “unprecedented and illegal” removal of her from her position
+>  at the start of his new administration.
+
+> ... As she lays out in her lawsuit, however, board member Wilcox’s removal was unprecedented and unlawful, in contravention of decades of Supreme Court precedent.
+
+> The National Labor Relations Act makes crystal clear that board members, who serve as specialized judges for labor law, can only be removed from office for
+>  “neglect of duty or malfeasance in office, but for no other cause,” and only “upon notice and hearing.” The president made no pretense of accusing Wilcox
+>  of misconduct—she is a dedicated public servant with a sterling reputation—or providing her any opportunity for a hearing. Instead, the president summarily
+>  fired her because he disagreed with her decisions as a board member.
 
 https://slate.com/news-and-politics/2025/02/nlrb-gwynne-wilcox-sues-donald-trump-illegal.html 
 
-
 ## Feb 6
+
+### First Thing: Blacklists naming ‘woke’ federal workers were funded by Project 2025 thinktank
 
 https://www.theguardian.com/us-news/2025/feb/06/first-thing-blacklists-naming-woke-federal-workers-were-funded-by-project-2025-thinktank 
 
+### Trump's Justice Department shutters specialized FBI team combating foreign election interference threats
+
+> The FBI is preparing to disband a team of specialists charged with combating foreign threats to US elections, a source familiar tells CNN.
+
+> The shuttering of the FBI Foreign Influence Task Force and planned reassigning of team members follows a directive from incoming and newly
+> sworn in US Attorney General Pam Bondi dissolving the team. 
 
 https://www.cnn.com/politics/live-news/trump-gaza-news-02-06-25#cm6srdiyc00053b6mju3tx6qj 
 
+### After prayer breakfast, Trump creates task force to root out ‘anti-Christian bias’
 
-After prayer breakfast, Trump creates task force to root out ‘anti-Christian bias’
-
-Trump said Bondi would also work to “fully prosecute anti-Christian violence and vandalism in our society and to move heaven and earth to defend the rights of Christians and religious believers nationwide.”
+> Trump said Bondi would also work to “fully prosecute anti-Christian violence and vandalism in our society and to move heaven and earth to defend
+the rights of Christians and religious believers nationwide.”
 
 https://apnews.com/article/trump-national-prayer-breakfast-30ff6f55a2e3c7b8643a15e7b158537d 
-
 
 ## Feb 7
 
@@ -361,6 +376,12 @@ https://comptroller.nyc.gov/newsroom/statement-from-nyc-comptroller-lander-on-th
 https://www.independent.co.uk/news/world/americas/us-politics/usaid-inspector-fired-trump-freeze-b2696917.html 
 
 https://consequence.net/2025/02/ben-folds-resigns-from-advisory-position-at-kennedy-center/ 
+
+### Trump says the U.S. will 'own' Gaza — what that could mean for the Middle East
+
+> Trump says the U.S. is going to take over Gaza, though he offers few specifics. What could the proposal mean for Palestinians and the broader Middle East?
+
+https://www.npr.org/2025/02/12/1230862336/trump-says-the-us-will-own-gaza-what-that-could-mean-for-the-middle-east
 
 ## Feb 13
 
