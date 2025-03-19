@@ -929,3 +929,13 @@ https://www.nola.com/news/medgar-evers-army-veteran/article_86924496-040c-11f0-9
 ### Trump signs order to shift disaster preparations from FEMA to states, local governments
 
 https://www.reuters.com/world/us/trump-signs-order-shift-disaster-preparations-fema-states-local-governments-2025-03-19/
+
+### Think your ATM withdrawals are private? Taking out $200 could now put you on the Federal Financial Surveillance radar in these American counties
+
+> A new regulation that took effect this week mandates reporting to financial institutions in seven border counties all cash deposits and withdrawals of $200 or more, a significant decrease of the reporting threshold of $10,000 which is followed in the rest of the country, Reason reported.
+
+> ...
+
+> The seven California and Texas counties are San Diego and Imperial Counties in California, and Cameron, El Paso, Hidalgo, Maverick, and Webb Counties in Texas are now subject to this financial monitoring, reported Reason.
+
+https://economictimes.com/news/international/us/think-your-atm-withdrawals-are-private-taking-out-200-could-now-put-you-on-the-federal-financial-surveillance-radar-in-these-american-counties/amp_articleshow/119167566.cms
