@@ -57,182 +57,196 @@ https://apnews.com/article/colombia-immigration-deportation-flights-petro-trump-
 
 ## Jan 27
 
+### Donald Trump Pulling US Troops From Europe in Blow to NATO Allies: Report
+
 https://www.newsweek.com/trump-us-troops-europe-nato-2019728 
 
+### Donald Trump's '100 Day' Ukraine Peace Plan Leaked: Report
 
 https://www.newsweek.com/donald-trumps-100-day-ukraine-peace-plan-leaked-report-2021215 
 
+### Trump White House orders freeze on federal grants, loans
 
-Trump White House orders freeze on federal grants, loans
-
-The memo says the temporary pause, effective starting at 5 p.m. on Tuesday, is intended to ensure agencies are complying with Trump’s
+> The memo says the temporary pause, effective starting at 5 p.m. on Tuesday, is intended to ensure agencies are complying with Trump’s
 executive orders to root out “Marxist equity, transgenderism, and green new deal social engineering policies” from programs within
 their purview.
 
 https://rollcall.com/2025/01/27/trump-white-house-orders-freeze-on-federal-grants-loans/
 
-'See how they like it': Trump suggests deporting US-born criminals to foreign prisons
+### 'See how they like it': Trump suggests deporting US-born criminals to foreign prisons
 
 https://www.rawstory.com/trump-crime-2671007254/
 
-
-https://www.reddit.com/r/nursing/s/gu13Yrx0Uj 
-
-
-The Most Alarming Moments From RFK Jr.’s Confirmation Hearing
+### The Most Alarming Moments From RFK Jr.’s Confirmation Hearing
 
 https://www.rollingstone.com/politics/politics-news/rfk-jr-hhs-confirmation-hearing-most-alarming-moments-1235250481/ 
 
-
-Trump orders opening of migrant detention center at Guantánamo Bay
+### Trump orders opening of migrant detention center at Guantánamo Bay
 
 https://www.theguardian.com/us-news/2025/jan/29/trump-guantanamo-detention-center
 
+### Trump order targets pro-Palestinian activists to ‘combat antisemitism’
 
-Supreme Court Asked to Overturn Gay Marriage
-
-https://www.newsweek.com/supreme-court-asked-overturn-gay-marriage-2022073 
-
-
-Trump order targets pro-Palestinian activists to ‘combat antisemitism’
+> Donald Trump has signed an executive order to “combat antisemitism” that asks agencies to explore ways to deport pro-Palestinian activists, including student protesters.
 
 https://www.theguardian.com/us-news/2025/jan/29/trump-executive-order-pro-palestinian-activists 
 
-
-Which countries will Trump’s foreign aid suspension hurt most?
+### Which countries will Trump’s foreign aid suspension hurt most?
 
 https://aje.io/0t59rj
 
+## Jan 30
 
-## Jan 31
+### Trump’s Executive Order on Antisemitism Is a Threat to Every American
 
-The State Department is blocking new passports for trans Americans
+> On Wednesday, President Donald Trump signed an executive order on antisemitism. A White House fact sheet, obtained by reporters ahead of the order, proclaimed that “Immediate action will be taken by the Department of Justice to protect law and order, quell pro-Hamas vandalism and intimidation, and investigate and punish anti-Jewish racism in leftist, anti-American colleges and universities.” Trump also vowed, “To all the resident aliens who joined in the pro-jihadist protests, we put you on notice: come 2025, we will find you, and we will deport you. I will also quickly cancel the student visas of all Hamas sympathizers on college campuses, which have been infested with radicalism like never before.”
 
-https://19thnews.org/2025/01/transgender-passports-state-department/ 
-
-
-'I feel like I’m stuck here': Trans, nonbinary Americans' passports remain in limbo
-
-https://www.usatoday.com/story/travel/news/2025/01/28/state-department-passport-gender-marker/77976486007/ 
-
-
-FAA Report on D.C. Plane Crash Is Out—and It’s an Indictment of Trump
-
-https://newrepublic.com/post/190964/faa-report-dc-plane-crash-staffing-indictment-trump 
-
-
-Exclusive: Musk aides lock government workers out of computer systems at US agency, sources say
-
-https://www.reuters.com/world/us/musk-aides-lock-government-workers-out-computer-systems-us-agency-sources-say-2025-01-31/ 
-
-
-Federal employees told to remove pronouns from email signatures by end of day
-
-https://abcnews.go.com/US/federal-employees-told-remove-pronouns-email-signatures-end/story?id=118310483
-
-
-Trump Admin Emails Air Traffic Controllers: Quit Your Jobs
-
-https://www.thedailybeast.com/trump-admin-emails-air-traffic-controllers-quit-your-jobs/ 
-
-
-CDC Data Are Disappearing
-
-https://www.theatlantic.com/health/archive/2025/01/cdc-dei-scientific-data/681531/ 
-
-
-https://techcrunch.com/2025/01/31/elon-musk-is-reportedly-taking-control-of-the-inner-workings-of-us-government-agencies/?guccounter=1 
-
-
-https://nypost.com/2025/01/31/us-news/faa-embroiled-in-lawsuit-alleging-it-turned-away-1000-applicants-based-on-race/?utm_source=reddit.com 
-
-
-https://www.nbcnews.com/politics/donald-trump/live-blog/trump-administration-tariff-canada-mexico-dei-plane-crash-live-updates-rcna190078/rcrd71576?canonicalCard=true 
-
-
-USDA orders removal of climate change mentions from public websites
-
-https://abcnews.go.com/US/usda-orders-removal-climate-change-mentions-public-websites/story?id=118312216 
-
-
-https://www.cnbc.com/2025/01/31/trump-media-djt-stock-shares-kash-patel.html 
-
-
-US health agencies scrubbing websites to remove 'gender ideology’
-
-https://www.reuters.com/world/us/us-health-agencies-scrubbing-websites-remove-gender-ideology-2025-01-31/ 
-
-
-https://www.bbc.com/news/articles/cp3jd798kpzo 
-
-Trans people in US federal prisons face brutal crackdown under Trump order
-
-https://www.theguardian.com/us-news/2025/jan/30/trans-people-federal-prisons
-
-
-https://www.thedailybeast.com/trump-orders-schools-to-ease-sexual-misconduct-rules/ 
-
-
-https://www.nbcnews.com/politics/national-security/trump-administration-forces-multiple-senior-fbi-officials-rcna190138 
-
-
-Trump Tells DOJ to Prosecute Teachers Who Unlawfully Support Trans Or Nonbinary Students
-
-https://www.motherjones.com/politics/2025/01/trump-tells-doj-to-prosecute-teachers-who-unlawfully-support-trans-or-nonbinary-students/ 
-
-
-US federal websites stay up after confusion over plan to remove diversity information
-
-https://www.reuters.com/world/us/trump-admin-take-down-most-government-websites-5-pm-cbs-reports-2025-01-31/ 
-
-
-Elon Musk’s Friends Have Infiltrated Another Government Agency
-
-https://archive.ph/8VcA7 | https://www.wired.com/story/elon-musk-lackeys-general-services-administration/ 
-
-
-FBI Agents Are Stunned by the Scale of the Expected Trump Purge
-
-https://www.theatlantic.com/politics/archive/2025/01/trump-fbi-revenge-firings/681538/
-
-
-Elon Musk Is Trying to Get Control of Key Payment System—at Any Cost
-
-https://newrepublic.com/post/190983/top-treasury-official-quit-elon-musk-fight-payment-system 
-
-
-## Feb 1
-
-Hegseth Replaces Mainstream Media With MAGA Sites at Pentagon
-
-https://www.thedailybeast.com/four-media-outlets-stripped-of-office-space-in-pentagon/ 
-
-
-Pete Hegseth refuses to rule out military strikes on Mexico: 'All options will be on the table‘
-
-https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-military-cartels-mexico-b2690153.html 
-
-
-Trump’s Executive Order on Antisemitism Is a Threat to Every American
+> In other words, Trump’s plan to fight antisemitism is to use the powers of the U.S. government to go after universities, and to deport people, including students, who are here on visas if the protests in which they are participating are deemed to be sympathetic to Hamas.
 
 https://slate.com/news-and-politics/2025/01/trump-executive-order-antisemitism-college-protests-hamas-constitution.html 
 
+## Jan 31
 
-Arrests, detentions underway in Florida as state cracks down on illegal immigrants. What we know
+### The State Department is blocking new passports for trans Americans
+
+https://19thnews.org/2025/01/transgender-passports-state-department/ 
+
+### 'I feel like I’m stuck here': Trans, nonbinary Americans' passports remain in limbo
+
+https://www.usatoday.com/story/travel/news/2025/01/28/state-department-passport-gender-marker/77976486007/ 
+
+### FAA Report on D.C. Plane Crash Is Out—and It’s an Indictment of Trump
+
+https://newrepublic.com/post/190964/faa-report-dc-plane-crash-staffing-indictment-trump 
+
+### Exclusive: Musk aides lock government workers out of computer systems at US agency, sources say
+
+https://www.reuters.com/world/us/musk-aides-lock-government-workers-out-computer-systems-us-agency-sources-say-2025-01-31/ 
+
+### Federal employees told to remove pronouns from email signatures by end of day
+
+https://abcnews.go.com/US/federal-employees-told-remove-pronouns-email-signatures-end/story?id=118310483
+
+### Trump Admin Emails Air Traffic Controllers: Quit Your Jobs
+
+https://www.thedailybeast.com/trump-admin-emails-air-traffic-controllers-quit-your-jobs/ 
+
+### CDC Data Are Disappearing
+
+https://www.theatlantic.com/health/archive/2025/01/cdc-dei-scientific-data/681531/ 
+
+### Elon Musk is reportedly taking control of the inner workings of US government agencies
+
+https://techcrunch.com/2025/01/31/elon-musk-is-reportedly-taking-control-of-the-inner-workings-of-us-government-agencies/?guccounter=1 
+
+### FAA embroiled in lawsuit alleging it turned away 1,000 applicants based on race — that contributed to staffing woes
+
+https://nypost.com/2025/01/31/us-news/faa-embroiled-in-lawsuit-alleging-it-turned-away-1000-applicants-based-on-race/?utm_source=reddit.com 
+
+### Trump to impose tariffs on Canada, Mexico and China on Saturday, White House says
+
+https://www.nbcnews.com/politics/donald-trump/trump-impose-tariffs-canada-mexico-china-saturday-white-house-says-rcna190221
+
+### Trump’s stepped-up immigration arrests escalate need for more detention space
+
+https://www.nbcnews.com/politics/donald-trump/live-blog/trump-administration-tariff-canada-mexico-dei-plane-crash-live-updates-rcna190078/rcrd71669?canonicalCard=true
+
+### Trump signs Black History Month proclamation as agencies ban events recognizing it
+
+https://www.nbcnews.com/politics/donald-trump/live-blog/trump-administration-tariff-canada-mexico-dei-plane-crash-live-updates-rcna190078/rcrd71666?canonicalCard=true
+
+### Trump administration forces out multiple senior FBI officials
+
+https://www.nbcnews.com/politics/donald-trump/live-blog/trump-administration-tariff-canada-mexico-dei-plane-crash-live-updates-rcna190078/rcrd71576?canonicalCard=true 
+
+### USDA orders removal of climate change mentions from public websites
+
+https://abcnews.go.com/US/usda-orders-removal-climate-change-mentions-public-websites/story?id=118312216 
+
+### Trump Media offers DJT shares to FBI pick Kash Patel, Linda McMahon and president’s son
+
+https://www.cnbc.com/2025/01/31/trump-media-djt-stock-shares-kash-patel.html 
+
+### US health agencies scrubbing websites to remove 'gender ideology’
+
+https://www.reuters.com/world/us/us-health-agencies-scrubbing-websites-remove-gender-ideology-2025-01-31/ 
+
+### Pentagon strips Gen Mark Milley of US security detail and clearance
+
+https://www.bbc.com/news/articles/cp3jd798kpzo 
+
+### Trans people in US federal prisons face brutal crackdown under Trump order
+
+https://www.theguardian.com/us-news/2025/jan/30/trans-people-federal-prisons
+
+### Trump Orders Schools to Ease Sex Assault Rules
+
+> Donald Trump rammed through new Title IX rules for federally funded K-12 schools and colleges Friday—dramatically changing how they deal with sex assault claims and LGBT students.
+
+> ...
+
+> The new policy, announced on Friday, resuscitates the Title IX policy changes Trump implemented in 2018 during his first term. It reduces the liability placed on schools in sexual misconduct cases. It also requires live hearings and cross-examinations, and allows lawyers to be present at those hearings.
+> Trump’s order included language to justify his decision not to utilize the traditional and protracted process to make new rules. The letter stated, “the president’s interpretation of the law governs because he alone controls and supervises subordinate officers” in the Department of Education’s Office of Civil Rights, which enforces the rules.
+
+https://www.thedailybeast.com/trump-orders-schools-to-ease-sexual-misconduct-rules/ 
+
+### Trump administration forces out multiple senior FBI officials and January 6 prosecutors
+
+https://www.nbcnews.com/politics/national-security/trump-administration-forces-multiple-senior-fbi-officials-rcna190138 
+
+### Trump Tells DOJ to Prosecute Teachers Who Unlawfully Support Trans Or Nonbinary Students
+
+https://www.motherjones.com/politics/2025/01/trump-tells-doj-to-prosecute-teachers-who-unlawfully-support-trans-or-nonbinary-students/ 
+
+### US federal websites stay up after confusion over plan to remove diversity information
+
+https://www.reuters.com/world/us/trump-admin-take-down-most-government-websites-5-pm-cbs-reports-2025-01-31/ 
+
+### Elon Musk’s Friends Have Infiltrated Another Government Agency
+
+https://archive.ph/8VcA7 | https://www.wired.com/story/elon-musk-lackeys-general-services-administration/ 
+
+### FBI Agents Are Stunned by the Scale of the Expected Trump Purge
+
+https://www.theatlantic.com/politics/archive/2025/01/trump-fbi-revenge-firings/681538/
+
+### Elon Musk Is Trying to Get Control of Key Payment System—at Any Cost
+
+https://newrepublic.com/post/190983/top-treasury-official-quit-elon-musk-fight-payment-system 
+
+### Arrests, detentions underway in Florida as state cracks down on illegal immigrants. What we know
 
 https://www.usatoday.com/story/news/2025/01/31/illegal-immigrants-florida-arrests-ice-raids/78084285007/ 
 
-Federal agencies bar Black History Month and other 'special observances’
+### Federal agencies bar Black History Month and other 'special observances’
 
-(note: This seems to be in conflict with the black History month page on .gov)
+> Federal agencies on Friday rushed to comply with President Donald Trump’s executive orders aimed at curtailing diversity, equity and inclusion programs.
+
+> The executive orders prompted a flurry of memos and emails obtained by NBC News that modified the rules for staff at intelligence agencies, in the military and across civilian departments regarding employee resource groups and the celebration of cultural awareness events.
+
+> This week, the Defense Intelligence Agency ordered a pause of all activities and events related to Martin Luther King Jr. Day, Black History Month, Juneteenth, LGBTQ Pride Month, Holocaust Remembrance Day and other "special observances" to comply with President Donald Trump's executive order, according to a memo obtained by NBC News.
 
 https://www.nbcnews.com/news/rcna190189 
 
+## Feb 1
 
-‘There will be many casualties’: Panama girds for war as Rubio opens talks
+### Hegseth Replaces Mainstream Media With MAGA Sites at Pentagon
+
+https://www.thedailybeast.com/four-media-outlets-stripped-of-office-space-in-pentagon/ 
+
+### Pete Hegseth refuses to rule out military strikes on Mexico: 'All options will be on the table‘
+
+https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-military-cartels-mexico-b2690153.html 
+
+## Feb 2
+
+### ‘There will be many casualties’: Panama girds for war as Rubio opens talks
+
+> Marco Rubio’s weekend visit to Panama is set to offer clues to a pressing question: whether the next four years of American policy will more closely resemble an imperial conquest or a hardball real estate negotiation.
+
+> On the ground here, members of the country’s small political elite have been bracing for either: As tensions over the Panama Canal ratcheted up last month, Panama’s former president, Ernesto Pérez Balladares, sat in his office on the 10th floor of a bank building and contemplated the worst-case scenario: an American invasion. “I think there will be many, many casualties on our side,” he said, “and international condemnation of the U.S.”
 
 https://www.politico.com/news/2025/02/01/panama-trump-confrontation-war-00201759 
-
 
 ## Feb 4
 
