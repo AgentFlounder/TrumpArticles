@@ -330,36 +330,61 @@ https://apnews.com/article/trump-national-prayer-breakfast-30ff6f55a2e3c7b8643a1
 
 ## Feb 7
 
+### Members of Congress denied access to Department of Education 
+
 https://thehill.com/homenews/education/5132685-department-of-education-musk-doge-trump-frost/ 
 
+### Judge temporarily blocks Musk’s ‘Doge’ team from accessing treasury records
 
 https://www.theguardian.com/technology/2025/feb/08/judge-temporarily-blocks-musks-doge-team-from-accessing-treasury-records 
 
-
 ## Feb 10
 
-Did DOGE really ‘delete’ the tech division that helped create the IRS Direct File free tax filing service?
+### Did DOGE really ‘delete’ the tech division that helped create the IRS Direct File free tax filing service?
+
+> The Direct File pilot, which launched successfully last year, was created by the IRS in collaboration with something called
+> 18F, which is a part of the Technology Transformation Services. 
+
+> While it remains unclear whether 18F has officially been dissolved by Musk and his DOGE team, it’s also not evident that
+> its shuttering would prevent the IRS from continuing to operate its Direct File program. But there is reason at this time
+> to think that IRS Direct File will remain fully operational this tax season.
 
 https://www.cnn.com/2025/02/05/business/musk-irs-direct-file 
 
+### Trump promises 25% tariffs on steel and aluminum imports — including from Canada
 
 https://www.cbc.ca/news/politics/trump-tariff-steel-aluminum-canada-1.7454845 
 
+### Vance and Musk Question the Authority of the Courts as Trump's Agenda Faces Legal Pushback
+
+> Top Trump administration officials are openly questioning the judiciary's authority to serve as a check on executive power as the new
+> president's sweeping agenda faces growing pushback from the courts.
+
+> Over the past 24 hours, officials ranging from billionaire Elon Musk to Vice President JD Vance have not only criticized a federal judge's
+> decision early Saturday that blocks Musk’s Department of Government Efficiency from accessing Treasury Department records, but have also
+> attacked the legitimacy of judicial oversight, a fundamental pillar of American democracy, which is based on the separation of powers.
 
 https://www.military.com/daily-news/2025/02/10/vance-and-musk-question-authority-of-courts-trumps-agenda-faces-legal-pushback.html 
 
-
 ## Feb 11
+
+### Trump signs executive order to establish a White House Faith Office
 
 https://www.pbs.org/newshour/politics/watch-live-trump-signs-executive-orders-related-to-faith-announcement
 
 ## Feb 12
 
+### Trump Humiliated in the ‘Most Powerless Image Ever’ of a U.S. President: O’Donnell 
+
 https://www.thedailybeast.com/lawrence-odonnell-musk-humiliates-trump-in-most-powerless-image-ever/
+
+### Supreme Court Justice Sounds Alarm Over Trump’s ‘Monarchy’ Power Grab
 
 https://www.thedailybeast.com/sonia-sotomayor-sounds-alarm-over-trump-monarchy-power-grab/  
 
-https://www.theguardian.com/world/live/2025/feb/12/ukraine-russia-eu-foreign-ministers-lammy-trump-hegseth-europe-live-news
+### US no longer ‘primarily focused’ on Europe’s security, says Pete Hegseth
+
+https://www.theguardian.com/us-news/2025/feb/12/us-no-longer-primarily-focused-on-europes-security-says-pete-hegseth
 
 https://arstechnica.com/health/2025/02/cdc-and-fda-have-until-tonight-to-restore-webpages-court-rules/ 
 
