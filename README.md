@@ -963,3 +963,9 @@ https://www.theguardian.com/us-news/2025/mar/20/trump-executive-order-education-
 ### Pentagon Set Up Briefing for Musk on Potential War With China
 
 https://www.nytimes.com/2025/03/20/us/politics/musk-pentagon-briefing-china-war-plan.html?rsrc=ss&unlocked_article_code=1.5k4.pWVQ.Uw4rECKC1F6m&smid=nytcore-ios-share&referringSource=articleShare
+
+### Trump Touts Prison in El Salvador for Tesla Attackers
+
+> President Donald Trump has suggested sending people who are attacking Tesla to prisons in El Salvador if they are convicted of crimes, as a number of the automaker's vehicles and showrooms have been targeted by reported arson and other violence.
+
+https://www.newsweek.com/trump-touts-prison-el-salvador-tesla-attackers-2048498
