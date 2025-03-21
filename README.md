@@ -969,3 +969,7 @@ https://www.nytimes.com/2025/03/20/us/politics/musk-pentagon-briefing-china-war-
 > President Donald Trump has suggested sending people who are attacking Tesla to prisons in El Salvador if they are convicted of crimes, as a number of the automaker's vehicles and showrooms have been targeted by reported arson and other violence.
 
 https://www.newsweek.com/trump-touts-prison-el-salvador-tesla-attackers-2048498
+
+### Acting Social Security head consults with Justice Dept. on threat to close agency
+
+https://wapo.st/4bM5d89
