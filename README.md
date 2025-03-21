@@ -953,3 +953,7 @@ https://www.rollingstone.com/politics/politics-features/trump-musk-doge-treasury
 > The administration of U.S. President Donald Trump has removed an explicit ban on "segregated facilities" like waiting rooms, restaurants and drinking fountains for federal contractors, a memo issued by the U.S. General Services Administration showed.
 
 https://www.reuters.com/world/us/trump-administration-removes-ban-segregated-facilities-federal-contracts-2025-03-19/
+
+### Trump signs executive order to dismantle US Department of Education
+
+https://www.theguardian.com/us-news/2025/mar/20/trump-executive-order-education-department
