@@ -954,6 +954,12 @@ https://www.rollingstone.com/politics/politics-features/trump-musk-doge-treasury
 
 https://www.reuters.com/world/us/trump-administration-removes-ban-segregated-facilities-federal-contracts-2025-03-19/
 
+## Mar 20
+
 ### Trump signs executive order to dismantle US Department of Education
 
 https://www.theguardian.com/us-news/2025/mar/20/trump-executive-order-education-department
+
+### Pentagon Set Up Briefing for Musk on Potential War With China
+
+https://www.nytimes.com/2025/03/20/us/politics/musk-pentagon-briefing-china-war-plan.html?rsrc=ss&unlocked_article_code=1.5k4.pWVQ.Uw4rECKC1F6m&smid=nytcore-ios-share&referringSource=articleShare
