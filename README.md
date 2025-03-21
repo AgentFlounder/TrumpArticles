@@ -972,4 +972,6 @@ https://www.newsweek.com/trump-touts-prison-el-salvador-tesla-attackers-2048498
 
 ### Acting Social Security head consults with Justice Dept. on threat to close agency
 
+> Acting Social Security commissioner Leland Dudek said Friday that he is consulting with agency lawyers and the Justice Department as he threatens to shut down the agency in response to a court ruling blocking Elon Musk’s team from accessing sensitive taxpayer data.
+
 https://wapo.st/4bM5d89
