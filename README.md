@@ -7,6 +7,13 @@ Track Trump Administration and GOP activities and related topics that are cause 
 ## Notes
 This isn't a complete list. Todo: Copy headlines in when time permits. Verify articles sorted by date of publication.
 
+new articles to move below:
+
+### Patel plans major cutback to ATF by moving as many as 1,000 agents to FBI
+
+https://www.cnn.com/2025/03/22/politics/atf-agents-fbi
+
+
 ## Jan 20
 
 ### Trump administration removes LGBTQ, HIV resources from government websites
