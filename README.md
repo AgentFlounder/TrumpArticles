@@ -19,6 +19,8 @@ US District Judge James Boasberg on Monday rejected the government’s attempt t
 
 https://www.theguardian.com/us-news/2025/mar/24/trump-deportation-venezuela
 
+https://www.theatlantic.com/politics/archive/2025/03/trump-administration-accidentally-texted-me-its-war-plans/682151/?utm_source=bluesky&utm_medium=social&utm_campaign=the-atlantic&utm_content=edit-promo
+
 ## Jan 20
 
 ### Trump administration removes LGBTQ, HIV resources from government websites
