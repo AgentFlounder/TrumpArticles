@@ -21,6 +21,8 @@ https://www.theguardian.com/us-news/2025/mar/24/trump-deportation-venezuela
 
 https://www.theatlantic.com/politics/archive/2025/03/trump-administration-accidentally-texted-me-its-war-plans/682151/?utm_source=bluesky&utm_medium=social&utm_campaign=the-atlantic&utm_content=edit-promo
 
+https://www.irishstar.com/sport/soccer/donald-trump-salvador-real-madrid-34923654
+
 ## Jan 20
 
 ### Trump administration removes LGBTQ, HIV resources from government websites
