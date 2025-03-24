@@ -13,6 +13,11 @@ new articles to move below:
 
 https://www.cnn.com/2025/03/22/politics/atf-agents-fbi
 
+### Judge blocks Trump bid to deport Venezuelans under centuries-old war law
+
+US District Judge James Boasberg on Monday rejected the government’s attempt to vacate restraining orders protecting Venezuelans accused of gang ties from deportation, instead insisting on due process for those contesting the allegations.
+
+https://www.theguardian.com/us-news/2025/mar/24/trump-deportation-venezuela
 
 ## Jan 20
 
