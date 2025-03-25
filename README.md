@@ -9,6 +9,14 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Why Did Elon Musk Go After Bunkers Full of Seeds?
+
+> In a climate-controlled bunker in an unremarkable building in rural Aberdeen, Idaho, there are shelves upon shelves of meticulously labeled boxes of seed. This vault is home to many of the United States’ more than 62,000 genetically unique lines of wheat, collected over the past 127 years from around the world.
+
+>Though dormant, these seeds are alive. But unless they are continually cared for and periodically replanted, the lines will die, along with the millenniums of evolutionary history that they embody.
+
+https://www.nytimes.com/2025/03/22/opinion/doge-elon-musk-usda-crops.html
+
 ### Patel plans major cutback to ATF by moving as many as 1,000 agents to FBI
 
 https://www.cnn.com/2025/03/22/politics/atf-agents-fbi
