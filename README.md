@@ -31,6 +31,13 @@ https://www.theatlantic.com/politics/archive/2025/03/trump-administration-accide
 
 https://www.irishstar.com/sport/soccer/donald-trump-salvador-real-madrid-34923654
 
+
+### House Speaker Mike Johnson: 'We do have authority over the federal courts'
+
+> "We do have authority over the federal courts," Johnson said at a press conference. "We can eliminate an entire district court, we have power of funding over the courts and all these other things. But desperate times call for desperate measures and Congress is going to act."
+
+https://www.usatoday.com/story/news/politics/2025/03/25/mike-johnson-federal-courts-trump/82655089007/
+
 ## Jan 20
 
 ### Trump administration removes LGBTQ, HIV resources from government websites
