@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump’s ‘climate’ purge deleted a new extreme weather risk tool. We recreated it
+
+https://www.theguardian.com/environment/ng-interactive/2025/mar/26/extreme-weather-risk-tool-fema-trump
+
 ### Why Did Elon Musk Go After Bunkers Full of Seeds?
 
 > In a climate-controlled bunker in an unremarkable building in rural Aberdeen, Idaho, there are shelves upon shelves of meticulously labeled boxes of seed. This vault is home to many of the United States’ more than 62,000 genetically unique lines of wheat, collected over the past 127 years from around the world.
