@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### As top Trump aides sent texts on Signal, flight data show a member of the group chat was in Russia
+
+https://www.cbsnews.com/news/trump-envoy-steve-witkoff-signal-text-group-chat-russia-putin/
+
 ### Trump’s ‘climate’ purge deleted a new extreme weather risk tool. We recreated it
 
 https://www.theguardian.com/environment/ng-interactive/2025/mar/26/extreme-weather-risk-tool-fema-trump
