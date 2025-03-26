@@ -9,6 +9,13 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### The Atlantic releases the entire Signal chat showing Hegseth’s detailed attack plans against Houthis
+
+https://apnews.com/article/hegseth-atlantic-war-plans-signal-yemen-houthis-c0addd08c627ab01a37ea63621cb695e
+
+### Atlantic article, non paywall 
+https://archive.ph/T4RTF
+
 ### As top Trump aides sent texts on Signal, flight data show a member of the group chat was in Russia
 
 https://www.cbsnews.com/news/trump-envoy-steve-witkoff-signal-text-group-chat-russia-putin/
