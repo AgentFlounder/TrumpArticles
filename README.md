@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### DC warns of major measles exposure; HHS names Geier to study autism and vaccines 
+
+> A Minnesotan visiting Washington, DC, has been confirmed to have measles, while the Washington Post reports David Geier, an outspoken vaccine critic, will be heading up a new federal effort to study autism and vaccines. Both news comes as new CDC research shows routine childhood immunizations remained below prepandemic levels 3 years after the COVID-19 pandemic began. 
+
+https://www.cidrap.umn.edu/measles/dc-warns-major-measles-exposure-hhs-names-geier-study-autism-and-vaccines
+
 ### The Atlantic releases the entire Signal chat showing Hegseth’s detailed attack plans against Houthis
 
 https://apnews.com/article/hegseth-atlantic-war-plans-signal-yemen-houthis-c0addd08c627ab01a37ea63621cb695e
