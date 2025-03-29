@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### House Republicans Pass a Continuing Resolution that Hands Congressional Powers to the White House
+
+> House Republicans have effectively surrendered their constitutional authority to the White House by approving a continuing resolution (CR) that grants the administration a “blank check” to fund the government through the end of the fiscal year. This reckless move hands unchecked power to the executive branch, bypassing Congress’s role in shaping government spending and policy. By doing so, they have abdicated their responsibility to ensure fiscal accountability and uphold the separation of powers, allowing the Trump administration to continue its pattern of unwarranted firings of federal workers, unlawful closures of programs and agencies, and unchecked violations of federal law by its appointees.
+
+https://nffe.org/press-release/house-republicans-pass-a-continuing-resolution-that-hands-congressional-powers-to-the-white-house/
+
 ### Trump Order Includes Provision That Could Punish States For Not Ceding Authority Over Election Admin To DOJ
 
 > But, there’s also a section, buried deeper in the order, that, if implemented, would give Trump’s Justice Department the authority to pick and choose what states get federal funding for election administration. 
