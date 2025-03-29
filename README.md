@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump Order Includes Provision That Could Punish States For Not Ceding Authority Over Election Admin To DOJ
+
+> But, there’s also a section, buried deeper in the order, that, if implemented, would give Trump’s Justice Department the authority to pick and choose what states get federal funding for election administration. 
+
+https://talkingpointsmemo.com/news/trump-order-includes-provision-that-could-punish-states-for-not-ceding-authority-over-election-admin-to-doj
+
 ### DC warns of major measles exposure; HHS names Geier to study autism and vaccines 
 
 > A Minnesotan visiting Washington, DC, has been confirmed to have measles, while the Washington Post reports David Geier, an outspoken vaccine critic, will be heading up a new federal effort to study autism and vaccines. Both news comes as new CDC research shows routine childhood immunizations remained below prepandemic levels 3 years after the COVID-19 pandemic began. 
