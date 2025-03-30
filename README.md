@@ -9,6 +9,14 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### US cracks down on international students, hundreds receive self-deportation emails over campus activism: Report
+
+> The US Department of State (DOS) has been sending alarming emails to hundreds of international students, instructing them to self-deport due to their involvement in campus activism. 
+>...
+> The report further added that applicants could be denied the opportunity to study in the US based on their social media activity.
+
+https://www.hindustantimes.com/world-news/us-news/us-cracks-down-on-international-students-hundreds-receive-self-deportation-emails-over-campus-activism-report-101743213021550.html
+
 ### House Republicans Pass a Continuing Resolution that Hands Congressional Powers to the White House
 
 > House Republicans have effectively surrendered their constitutional authority to the White House by approving a continuing resolution (CR) that grants the administration a “blank check” to fund the government through the end of the fiscal year. This reckless move hands unchecked power to the executive branch, bypassing Congress’s role in shaping government spending and policy. By doing so, they have abdicated their responsibility to ensure fiscal accountability and uphold the separation of powers, allowing the Trump administration to continue its pattern of unwarranted firings of federal workers, unlawful closures of programs and agencies, and unchecked violations of federal law by its appointees.
