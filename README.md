@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### RFK Jr. Expected To Lay Off Entire Office Of Infectious Disease And HIV/AIDS Policy
+
+https://www.forbes.com/sites/brucelee/2025/03/29/rfk-jr-laying-off-entire-office-of-infectious-disease-and-hivaids-policy/
+
 ### US cracks down on international students, hundreds receive self-deportation emails over campus activism: Report
 
 > The US Department of State (DOS) has been sending alarming emails to hundreds of international students, instructing them to self-deport due to their involvement in campus activism. 
