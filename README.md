@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump won’t rule out seeking a third term in the White House, tells NBC News ‘there are methods’ for doing so
+
+https://www.nbcnews.com/politics/donald-trump/trump-third-term-white-house-methods-rcna198752
+
 ### Troops in armored vehicles on the way to Big Bend National Park
 
 > About 500 members of the U.S. military are expected in the region in the coming weeks. 
