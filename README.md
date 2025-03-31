@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.newsweek.com/defense-secretary-pete-hegseth-included-wife-sensitive-meetings-report-2052491
+
 ### Trump won’t rule out seeking a third term in the White House, tells NBC News ‘there are methods’ for doing so
 
 https://www.nbcnews.com/politics/donald-trump/trump-third-term-white-house-methods-rcna198752
