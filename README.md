@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Troops in armored vehicles on the way to Big Bend National Park
+
+> About 500 members of the U.S. military are expected in the region in the coming weeks. 
+
+https://www.chron.com/life/wildlife/article/texas-national-park-big-bend-troops-20245858.php
+
 ### RFK Jr. Expected To Lay Off Entire Office Of Infectious Disease And HIV/AIDS Policy
 
 https://www.forbes.com/sites/brucelee/2025/03/29/rfk-jr-laying-off-entire-office-of-infectious-disease-and-hivaids-policy/
