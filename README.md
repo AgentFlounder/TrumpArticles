@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back
+
+https://www.independent.co.uk/news/world/americas/us-politics/trump-el-salvador-abrego-garcia-b2725002.html
+
 https://www.newsweek.com/defense-secretary-pete-hegseth-included-wife-sensitive-meetings-report-2052491
 
 ### Trump won’t rule out seeking a third term in the White House, tells NBC News ‘there are methods’ for doing so
