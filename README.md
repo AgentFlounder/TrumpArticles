@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Entire Staff Is Fired at Office That Helps Poorer Americans Pay for Heating
+
+> The move threatens to paralyze the Low Income Home Energy Assistance Program, which helps to offset high utility bills for roughly 6.2 million people nationwide.
+
+https://www.nytimes.com/2025/04/02/climate/trump-layoffs-energy-assistance-liheap.html
+
 ### Trump admin accidentally sent Maryland father to Salvadorian mega-prison and says it can’t get him back
 
 https://www.independent.co.uk/news/world/americas/us-politics/trump-el-salvador-abrego-garcia-b2725002.html
