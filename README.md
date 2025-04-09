@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.cbsnews.com/amp/news/justice-department-prosecutor-erez-reuveni-put-on-leave-maryland-mistaken-deportation-case-el-salvador/
+
 ### National Park Service removes references to Harriet Tubman from Underground Railroad webpage
 
 https://www.cnn.com/2025/04/06/us/national-parks-underground-railroad-harriet-tubman
