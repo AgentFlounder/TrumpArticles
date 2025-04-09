@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### National Park Service removes references to Harriet Tubman from Underground Railroad webpage
+
+https://www.cnn.com/2025/04/06/us/national-parks-underground-railroad-harriet-tubman
+
 ### Entire Staff Is Fired at Office That Helps Poorer Americans Pay for Heating
 
 > The move threatens to paralyze the Low Income Home Energy Assistance Program, which helps to offset high utility bills for roughly 6.2 million people nationwide.
