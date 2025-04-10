@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.freep.com/story/news/local/michigan/wayne/2025/04/07/lawyer-for-u-m-protester-held-at-airport-refused-to-give-feds-his-phone/82978891007/
+
 https://www.cbsnews.com/amp/news/justice-department-prosecutor-erez-reuveni-put-on-leave-maryland-mistaken-deportation-case-el-salvador/
 
 ### National Park Service removes references to Harriet Tubman from Underground Railroad webpage
