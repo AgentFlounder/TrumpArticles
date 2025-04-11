@@ -8,6 +8,7 @@ Track Trump Administration and GOP activities and related topics that are cause 
 This isn't a complete list. Todo: Copy headlines in when time permits. Verify articles sorted by date of publication.
 
 new articles to move below:
+https://thehill.com/homenews/house/5241423-house-passes-bill-district-court-injunctions/
 
 https://www.freep.com/story/news/local/michigan/wayne/2025/04/07/lawyer-for-u-m-protester-held-at-airport-refused-to-give-feds-his-phone/82978891007/
 
