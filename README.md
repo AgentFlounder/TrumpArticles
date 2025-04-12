@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://apnews.com/article/trump-churches-immigration-enforcement-82e5d40e8dad512a23732e9185879eeb
+
 https://www.military.com/daily-news/2025/04/10/space-force-commander-greenland-sent-out-email-breaking-vance-after-his-visit.html
 
 https://thehill.com/homenews/house/5241423-house-passes-bill-district-court-injunctions/
