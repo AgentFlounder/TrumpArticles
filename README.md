@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+> Fears over extremism in US military as soldier revealed as neo-Nazi TikTok follower
+
+> ... in February, the DoD issued a memo halting a major counter-extremism initiative rooting out white nationalists and far-right influences among servicemen, citing that it was not in line with Donald Trump’s executive orders. Since, the efficacy of rooting out the far right
+
+https://www.theguardian.com/us-news/2025/apr/14/us-military-extremism-the-base
+
 https://apnews.com/article/trump-churches-immigration-enforcement-82e5d40e8dad512a23732e9185879eeb
 
 https://www.military.com/daily-news/2025/04/10/space-force-commander-greenland-sent-out-email-breaking-vance-after-his-visit.html
