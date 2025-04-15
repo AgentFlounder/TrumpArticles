@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump administration freezes more than $2.2 billion after Harvard rejects its demands
+
+> The Trump administration responded quickly to Harvard University's defiance on Monday, freezing more than $2.2 billion in multi-year grants and contracts after the university rejected demands that it change hiring, admissions and other policies. 
+
+https://www.npr.org/2025/04/14/nx-s1-5364829/trump-administration-freezes-funds-after-harvard-rejects-dei-demands
+
 > Fears over extremism in US military as soldier revealed as neo-Nazi TikTok follower
 
 > ... in February, the DoD issued a memo halting a major counter-extremism initiative rooting out white nationalists and far-right influences among servicemen, citing that it was not in line with Donald Trump’s executive orders. Since, the efficacy of rooting out the far right
