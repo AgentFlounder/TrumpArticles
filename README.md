@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.nbcnews.com/news/us-news/ecoli-bacteria-lettuce-outbreak-rcna200236
+
+https://www.reuters.com/world/us/us-fda-suspends-food-safety-quality-checks-after-staff-cuts-2025-04-17/
+
 https://hackread.com/cve-program-online-cisa-temporary-mitre-extension/
 
 ### Trump administration freezes more than $2.2 billion after Harvard rejects its demands
