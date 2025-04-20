@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.nbcnews.com/science/science-news/us-attorney-demands-scientific-journal-explain-ensures-viewpoint-diver-rcna201929
+
 https://www.nytimes.com/2025/04/19/us/politics/supreme-court-deportation-protocol-venezuela.html?smid=nytcore-android-share
 
 https://www.theguardian.com/us-news/2025/apr/18/first-thing-irs-reportedly-plans-to-revoke-harvard-tax-exempt-status
