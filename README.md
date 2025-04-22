@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-fda-suspends-milk-quality-tests-amid-workforce-cuts-2025-04-21/
+
 https://www.nbcnews.com/science/science-news/us-attorney-demands-scientific-journal-explain-ensures-viewpoint-diver-rcna201929
 
 https://www.nytimes.com/2025/04/19/us/politics/supreme-court-deportation-protocol-venezuela.html?smid=nytcore-android-share
