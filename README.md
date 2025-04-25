@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Attorney general directs Justice Department employees to enforce policies targeting care for transgender minors
+
+https://www.cnn.com/2025/04/23/politics/bondi-justice-department-memo-gender-affirming-care
+
 https://dailyboulder.com/ice-can-now-enter-your-home-without-a-warrant-to-find-migrants-doj-memo-says/
 
 https://www.reuters.com/business/healthcare-pharmaceuticals/us-fda-suspends-milk-quality-tests-amid-workforce-cuts-2025-04-21/
