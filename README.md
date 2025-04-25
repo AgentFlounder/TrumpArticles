@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://dailyboulder.com/ice-can-now-enter-your-home-without-a-warrant-to-find-migrants-doj-memo-says/
+
 https://www.reuters.com/business/healthcare-pharmaceuticals/us-fda-suspends-milk-quality-tests-amid-workforce-cuts-2025-04-21/
 
 https://www.nbcnews.com/science/science-news/us-attorney-demands-scientific-journal-explain-ensures-viewpoint-diver-rcna201929
