@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.dcnewsnow.com/news/local-news/washington-dc/smithsonian-begins-removing-exhibits-artifacts-from-african-american-history-museum/
+
+https://www.npr.org/2025/04/25/nx-s1-5377624/pam-bondi-reporters-subpoena-leaks
+
 ### Attorney general directs Justice Department employees to enforce policies targeting care for transgender minors
 
 https://www.cnn.com/2025/04/23/politics/bondi-justice-department-memo-gender-affirming-care
