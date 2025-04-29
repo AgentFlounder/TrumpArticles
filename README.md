@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump signs orders stepping up immigration crackdown and ‘unleashing America’s law enforcement’ – US politics live
+
+> Executive orders target sanctuary cities, give legal help for police accused of misconduct and require truck drivers to speak English
+
+https://www.theguardian.com/us-news/live/2025/apr/28/donald-trump-tariffs-china-xi-jinping-immigration-sanctuary-cities-us-politics-live-updates
+
 https://www.theguardian.com/us-news/2025/apr/28/trump-doj-voting-rights
 
 https://www.dcnewsnow.com/news/local-news/washington-dc/smithsonian-begins-removing-exhibits-artifacts-from-african-american-history-museum/
