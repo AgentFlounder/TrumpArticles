@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Justice Department ends Civil Rights-era school desegregation order in Louisiana
+
+https://www.cnn.com/2025/05/02/us/louisiana-justice-department-desegregation-order
+
 ### Trump signs orders stepping up immigration crackdown and ‘unleashing America’s law enforcement’ – US politics live
 
 > Executive orders target sanctuary cities, give legal help for police accused of misconduct and require truck drivers to speak English
