@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.engadget.com/big-tech/trump-admin-announces-plans-to-shut-down-the-energy-star-program-184846271.html
+
 ### Justice Department ends Civil Rights-era school desegregation order in Louisiana
 
 https://www.cnn.com/2025/05/02/us/louisiana-justice-department-desegregation-order
