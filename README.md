@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### Trump administration considers suspending habeas corpus
+
+https://www.bbc.com/news/articles/c0qgz18glljo
+
 https://www.engadget.com/big-tech/trump-admin-announces-plans-to-shut-down-the-energy-star-program-184846271.html
 
 ### Justice Department ends Civil Rights-era school desegregation order in Louisiana
