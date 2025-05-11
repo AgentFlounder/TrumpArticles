@@ -9,6 +9,12 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### US Customs and Border Protection Plans to Photograph Everyone Exiting the US by Car
+
+> A CBP spokesperson tells WIRED that the agency plans to expand its program for real-time face recognition at the border, potentially aiding Trump administration efforts to track people who self-deport.
+
+https://www.wired.com/story/cbp-face-recognition-exit-us-border/
+
 ### Trump administration considers suspending habeas corpus
 
 https://www.bbc.com/news/articles/c0qgz18glljo
