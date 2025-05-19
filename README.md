@@ -11,6 +11,8 @@ new articles to move below:
 
 ### GOP congressman confirms Hegseth ordered pause in cyber operations against Russia, despite Pentagon denial
 
+> Republican Rep. Don Bacon of Nebraska said the U.S. government halted cyber operations against Russia for one day in February as President Trump was trying to negotiate an end to the Russia-Ukraine war, confirming CBS News reporting at the time and undercutting statements of denial from the Defense Department. 
+
 https://www.cbsnews.com/amp/news/gop-congressman-don-bacon-hegseth-ordered-pause-cyber-operations-against-russia/
 
 ### US Customs and Border Protection Plans to Photograph Everyone Exiting the US by Car
