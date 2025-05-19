@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+### GOP congressman confirms Hegseth ordered pause in cyber operations against Russia, despite Pentagon denial
+
+https://www.cbsnews.com/amp/news/gop-congressman-don-bacon-hegseth-ordered-pause-cyber-operations-against-russia/
+
 ### US Customs and Border Protection Plans to Photograph Everyone Exiting the US by Car
 
 > A CBP spokesperson tells WIRED that the agency plans to expand its program for real-time face recognition at the border, potentially aiding Trump administration efforts to track people who self-deport.
