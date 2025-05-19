@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.theguardian.com/world/2025/may/19/el-salvador-lawyer-arrested-deported-venezuelans
+
 ### GOP congressman confirms Hegseth ordered pause in cyber operations against Russia, despite Pentagon denial
 
 > Republican Rep. Don Bacon of Nebraska said the U.S. government halted cyber operations against Russia for one day in February as President Trump was trying to negotiate an end to the Russia-Ukraine war, confirming CBS News reporting at the time and undercutting statements of denial from the Defense Department. 
