@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.axios.com/local/chicago/2025/05/19/doj-civil-rights-investigation-chicago
+
 https://www.theguardian.com/world/2025/may/19/el-salvador-lawyer-arrested-deported-venezuelans
 
 ### GOP congressman confirms Hegseth ordered pause in cyber operations against Russia, despite Pentagon denial
