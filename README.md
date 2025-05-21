@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://newrepublic.com/post/195519/marco-rubio-judge-authority-testimony-senate
+
 https://www.axios.com/local/chicago/2025/05/19/doj-civil-rights-investigation-chicago
 
 https://www.theguardian.com/world/2025/may/19/el-salvador-lawyer-arrested-deported-venezuelans
