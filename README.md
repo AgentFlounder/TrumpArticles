@@ -9,7 +9,9 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
-https://newrepublic.com/post/195519/marco-rubio-judge-authority-testimony-senate
+# US supreme court clears way for deportation of migrants to South Sudan
+
+https://www.theguardian.com/us-news/2025/jul/03/us-supreme-court-south-sudan
 
 https://www.axios.com/local/chicago/2025/05/19/doj-civil-rights-investigation-chicago
 
