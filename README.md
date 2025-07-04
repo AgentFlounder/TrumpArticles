@@ -9,6 +9,10 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+# Trump Claims Sweeping Power to Nullify Laws, Letters on TikTok Ban Show
+
+https://www.nytimes.com/2025/07/03/us/politics/trump-bondi-tiktok-executive-power.html
+
 # US supreme court clears way for deportation of migrants to South Sudan
 
 https://www.theguardian.com/us-news/2025/jul/03/us-supreme-court-south-sudan
