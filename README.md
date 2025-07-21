@@ -9,6 +9,8 @@ This isn't a complete list. Todo: Copy headlines in when time permits. Verify ar
 
 new articles to move below:
 
+https://www.latintimes.com/fbis-full-panic-mode-search-trump-mentions-epstein-files-confirmed-former-analysts-report-587164
+
 https://www.cbsnews.com/miami/news/alligator-alcatraz-detainees-allege-inhumane-conditions-at-immigration-detention-center/
 
 # Trump Claims Sweeping Power to Nullify Laws, Letters on TikTok Ban Show
